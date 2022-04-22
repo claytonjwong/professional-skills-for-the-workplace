@@ -180,3 +180,112 @@ Take a moment to reflect and answer the following questions:
 * What did you learn about the ripple effect of your emotions and behaviors?
 * What did you learn about yourself when you asked others for their perspective?
 * Remember your best day and a not so good day – what was the difference?
+
+## Week 2: Self-Management and Self-Regulation
+
+### Cognitive Distortion
+
+* All or nothing or polarized thinking: You look at things in absolute, black and white categories.
+* Overgeneralization: You view a negative event as a never-ending pattern of defeat.
+* Mental Filter: You dwell on the negatives and ignore the positives.
+* Discounting the positives: You insist that your accomplishments or positive qualities “don’t count”.
+* Jumping to conclusions: (a) mind reading – you assume people are reacting negatively to you when there’s no definite evidence; (b) fortune telling – you arbitrarily predict things will turn out badly.
+* Magnification or Minimization: You blow things way out of proportion or you shrink their importance inappropriately.
+* Emotional Reasoning: You reason form ow you feel; “I feel like an idiot so I really must be one.” Or “I feel like doing this, so I’ll put it first.”
+* Should Statements: You criticize yourself or other people with “shoulds” or “shouldn’ts.” “Musts”, “Oughts”, “have tos” are similar offenders.
+* Labeling: YOU identify with your shortcomings. Instead of saying, “I made a mistake,” you tell yourself, “I am a jerk” or “a fool”.
+* Personalization and Blame: You blame yourself for something you weren’t entirely responsible for, or you blame others and overlook ways that your own attitudes and behavior might contribute to a problem.
+
+#### Answer the following questions:
+
+* Which of these cognitive distortions resonated with you?
+* How could you manage them when they come up?
+* How will you change your self-talk?
+
+### Practicing the Pause
+
+"The pause" may be as simple as taking a moment to stop and think before we act or speak. If everyone made that a practice, imagine how much shorter emails could be, how much time would be saved in meetings, and how many incendiary comments on social media would be eliminated.
+
+But remember: The pause is easy in theory, difficult to practice.
+
+Even if we're generally good at managing our emotions, factors like added stress or a bad day can inhibit our ability to do so at any given time. And we're not just talking about upsetting situations; we are often tempted to jump on opportunities that look really good at the time but that we haven't really thought through. When you work on pausing before speaking or acting, you create a habit of thinking first.
+
+![](practice_the_pause.png)
+
+* When was a time that you probably should have practiced the pause and didn't? How might that have changed the situation?
+* What strategies can you incorporate to help you practice the pause more often?
+
+### Journaling
+
+#### What is journaling?
+
+Simply put, journaling is “writing life down.” Two key reasons to keep a journal:
+
+#### Recapturing the moment
+
+Spending just a few minutes a day writing in a journal is an opportunity to slowdown, revisit key events of the day, and
+describe what happened and what you recall thinking or feeling. Writing to reflect on how you reacted and felt throughout the day can provide useful insight into how you see yourself and the world around you. This knowledge can help you gauge the progress you’re making with your treatment plan.
+
+#### Learning from the moment
+
+Journaling is a great self-teaching tool. It provides a safe environment for examining how changing your thoughts or behaviors might bring about a different outcome. Many people find that once they’ve recounted the day’s events, they can also spend a few minutes journaling about the lessons of the day, and “practicing” alternative ways to react to stress, handle relationships, and recognize and appreciate life’s positive moments.
+
+#### How can journaling help me take care of myself?
+If you are looking to become more aware of your thoughts and more skilled at turning them around when you become
+counterproductive or destructive, a written journal provides a place to “catch” those thoughts and experiment with how a different way of thinking might impact a given situation. You may find it helpful to share insights you have gained through journaling with your healthcare provide
+
+#### Tips for starting a journal
+* Commit time to write in your journal on a regular basis – ideally, daily.
+* Find a quiet time and place to journal
+
+#### What should I write?
+Every person’s journal is different. Here are a few of the things people keep track of in their journals:
+
+* Concerns
+* Accomplishments
+* Disappointments
+* Accounts of interactions with others, both positive and negative
+
+#### What strategies will you use to help yourself commit to journaling more?
+
+### Managing Stress
+
+#### Self-Regulation and Stress
+
+Managing stress should be approached from two different, complementary and interrelated angles:
+
+1. First, stressors -- events or situations that result in the feeling of being overwhelmed or threatened -- should be identified and then assessed to ensure that individuals and groups are differentiating between less controllable sources of stress and those that are more controllable, either through changing the events or situations themselves
+or changing one’s response to them.
+
+2. Second, for the less controllable sources of stress there are a broad range of constructive strategies for minimizing the toll they might otherwise take on our physical and emotional well-being.
+
+List the both the controllable and less controllable stressors in your life.
+
+For the less controllable stressors, identify which of the following constructive strategies are you using to manage your
+stressors? You are also invited to include your own constructive strategies.
+
+* Meditation, massage, visualization and other techniques that evoke a “relaxation response”- shifting one’s “fight or flight” orientation to a more subdued and introspective one.
+* Walking, jogging, yoga, dancing and other “flow oriented” exercise programs.
+* Good nutrition. Pay attention to the foods you eat and how they make you feel emotionally and physically.
+* Ergonomics- the alignment of a person’s body with their physical workspace.
+* Mentorship and coaching that is often included in workplace programs.
+* Enjoying music, nature and the arts.
+* Charitable activities and volunteer work.
+* Teaming up with one’s peers to help with stressful situations.
+* Positive recognition of performance milestones and celebration of customs.
+* Using humor to balance feelings of anxiety or to laugh at one’s self.
+
+#### Default strategies you that may not serve you and you should watch out for are:
+
+* Substance abuse, overeating, gambling, smoking, and other addictive behaviors.
+* Procrastination, excessive time off, and other forms of avoiding responsibility.
+* A victim mentality or, conversely, seeking excessive control of the environment.
+
+#### Practicing Self-Management – The five key points to help you master Self-Management:
+
+1. Be consistent. Part of managing oneself is the ability to be stable. The values you hold dear should always be transparent. Always changing can not only cause others to question your beliefs, but it can also cause you to become confused about what you truly believe.
+2. Stick to the plan. If you are scheduled to complete a particular task, do it. Don’t just do it, but make sure it is done
+in a timely manner. It is easy to feel out of control when you disregard the plan you are to follow.
+3. Be accountable. There are times when things don’t work out as you plan, but you have to be able to admit that and then use your flexibility to get things back on track. The ideal result is that you easily bounce back and complete the task, but even during those times when this is not the case, you are expected to adjust.
+4. Educate yourself. We live in an ever-changing world and you want to be able to keep up with it.  Don’t let change pass you by, embrace it. Be an avid reader. Talk and listen to mentors and peers. They may know something that could help you along your journey.
+5. Stay physically fit. Many people don’t think of staying fit when they talk about self-management, but it is a very important part of being able to practice the four preceding points. Exercising your body is just as crucial to self-management as exercising your mind. A body that is not well rested, nutritionally fed, or physically exercised can lead to emotional and physical illnesses.
