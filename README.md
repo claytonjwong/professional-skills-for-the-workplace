@@ -121,3 +121,62 @@ Workplaces that don’t feature such strong bonds and those in which employees d
 * Believing that others are overly sensitive because the person with low EQ cannot understand how others feel
 * Difficulty maintaining friendships and other relationships with others
 * Stonewalling, or refusing to see other's points of view
+
+## Week 1: Self-Awareness
+
+### List of Emotions
+
+#### Positive
+![](emotions_positive.png)
+
+#### Negative
+![](emotions_negative.png)
+
+### Articulate Your Feelings
+
+It’s not enough to know your emotions. People with high ESI have the ability to describe them to others. This communication is key when working with others that are still learning their emotional triggers and how to handle them.
+
+Consider the following situations and describe how you would feel in each situation:
+
+* You read an email that implies you dropped the ball.
+* Your partner blames you for something you feel is unfair.
+* Another driver cuts you off on the highway.
+* A close friend or associate begins to cry unexpectedly.
+
+By first identifying your own emotions and reactions, you become more mindful and start the process of building control.
+
+Note how you typically respond to these situations by answering the following reflection questions. Be honest about your reactions.
+
+1. What are the benefits of your response?
+2. What are the consequences of your response?
+3. What would be the benefits if you changed your response?
+4. What will you do with this knowledge?
+
+### The Ripple Effect of Emotions
+
+We just learned and experienced that our emotions can have a ripple effect on others. Let's examine how many people you could be impacting.
+
+* List the people you encounter each day: face-to-face, phone, email; look above and below yourself in the organization hierarchy.
+* How many people do you touch over a week's time?
+* How many people look to you for leadership, support, collaboration?
+* How many people might be (directly or indirectly) impacted by your emotions or behaviors?
+*  What different choices will you make with this information?
+
+### Get Some Feedback
+
+* Listen carefully and try not to get defensive
+* Check your perceptions and paraphrase
+* Ask questions for clarification; ask for examples, paraphrase again
+* Evaluate the accuracy and potential value of what you heard
+* Gather additional information from additional sources and/or observe your own behavior
+* Do not overreact but do modify behavior when appropriate
+* Say “Thank you for the feedback”. Learn to appreciate the learning you receive from feedback
+
+### What Did You Take Away From Self-Awareness?
+
+Take a moment to reflect and answer the following questions:
+
+* What did you take away from the self-reflection exercises?
+* What did you learn about the ripple effect of your emotions and behaviors?
+* What did you learn about yourself when you asked others for their perspective?
+* Remember your best day and a not so good day – what was the difference?
