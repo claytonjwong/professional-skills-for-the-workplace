@@ -1,5 +1,9 @@
 # Professional Skills for the Workplace
 
+---
+
+# Course 1: Emotional and Social Intelligence
+
 ## Week 1: Emotional and Social Intelligence
 
 ### Self-Reflection and Journaling
