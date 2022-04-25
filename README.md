@@ -195,8 +195,8 @@ Take a moment to reflect and answer the following questions:
 * Discounting the positives: You insist that your accomplishments or positive qualities “don’t count”.
 * Jumping to conclusions: (a) mind reading – you assume people are reacting negatively to you when there’s no definite evidence; (b) fortune telling – you arbitrarily predict things will turn out badly.
 * Magnification or Minimization: You blow things way out of proportion or you shrink their importance inappropriately.
-* Emotional Reasoning: You reason form ow you feel; “I feel like an idiot so I really must be one.” Or “I feel like doing this, so I’ll put it first.”
-* Should Statements: You criticize yourself or other people with “shoulds” or “shouldn’ts.” “Musts”, “Oughts”, “have tos” are similar offenders.
+* Emotional Reasoning: You reason for how you feel; “I feel like an idiot so I really must be one.” Or “I feel like doing this, so I’ll put it first.”
+* Should Statements: You criticize yourself or other people with “should's” or “shouldnt's.” “Musts”, “Oughts”, “have to's” are similar offenders.
 * Labeling: YOU identify with your shortcomings. Instead of saying, “I made a mistake,” you tell yourself, “I am a jerk” or “a fool”.
 * Personalization and Blame: You blame yourself for something you weren’t entirely responsible for, or you blame others and overlook ways that your own attitudes and behavior might contribute to a problem.
 
