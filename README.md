@@ -293,3 +293,210 @@ in a timely manner. It is easy to feel out of control when you disregard the pla
 3. Be accountable. There are times when things don’t work out as you plan, but you have to be able to admit that and then use your flexibility to get things back on track. The ideal result is that you easily bounce back and complete the task, but even during those times when this is not the case, you are expected to adjust.
 4. Educate yourself. We live in an ever-changing world and you want to be able to keep up with it.  Don’t let change pass you by, embrace it. Be an avid reader. Talk and listen to mentors and peers. They may know something that could help you along your journey.
 5. Stay physically fit. Many people don’t think of staying fit when they talk about self-management, but it is a very important part of being able to practice the four preceding points. Exercising your body is just as crucial to self-management as exercising your mind. A body that is not well rested, nutritionally fed, or physically exercised can lead to emotional and physical illnesses.
+
+## Week 3: Empathy
+
+### What is Empathy?
+
+Empathy is the ability to recognize emotions in others and to understand other people's perspectives on a situation.  Empathy is described as sensing what people are feeling, being able to take their perspective and cultivating report and attunement with a broad diversity of people.
+
+#### What are the Competencies of Empathy?
+
+1. understanding others
+2. developing others
+3. having a service orientation
+4. leveraging diversity
+5. political awareness
+
+#### Empathy is a Powerful Interpersonal Skill
+
+Empathy is one of our greatest interpersonal skills because it allows us to have better communication with people around us and increase our understanding of others. Empathy can simply mean to put ourselves in the other person's shoes. But it can also mean to take an active role in getting to know the people around you and treating them with respect they deserve.  Empathy enables you to use insight to improve someone else's mood and to support them through challenging situations.
+
+#### Empathy VS Sympathy
+
+Empathy is often confused with sympathy, but they are not the same thing. Sympathy is a feeling of concern for someone and a sense that they could be happier. Unlike empathy, sympathy doesn't involve shared perspective or emotions. You can feel sympathy for someone you see in tears on the street, for example, without knowing anything about their situation. Sympathy may develop into empathy, but it doesn't necessarily do so.
+
+#### Effective Empathy
+
+* [Understanding Empathy](https://www.youtube.com/watch?v=vAJ6jDoePyY)
+* [Brene Brown on Empathy](https://www.youtube.com/watch?v=1Evwgu369Jw)
+
+To use empathy effectively, you need to put aside your own viewpoint and see things from the other person's perspective. Then you can recognize behavior that appears at first sight to be overemotional, stubborn, or unreasonable, as simply a reaction based on a person's prior knowledge and experiences.
+
+### The Stages of Empathy
+
+1. **Cognitive:** the most rational, intellectual and emotionally neutral ability
+2. **Emotional:** the ability to share the feelings of another person and so to understand that person on a deeper level
+3. **Compassionate:** the most active form of empathy
+
+#### Cognitive Empathy
+
+Cognitive empathy is the ability to understand what another person might be thinking or feeling. It need not involve any emotional engagement by the observer. Managers may find cognitive empathy useful and understanding how their team members are feeling. And therefore, what style of leadership would get the best from them today.  Similarly, sales executives can use it to gauge the mood of the customer. Helping them to choose the most effective tone for a conversation.
+
+#### Emotional Empathy
+
+Sometimes called effective empathy, because it affects you or changes you. It's not just a matter of knowing how someone feels, but of creating genuine rapport with them. For some of us, this kind of empathy can feel overwhelming.  People with strong empathic tendencies can become immersed in other people's problems or pain. Sometimes damaging their own emotional well being. This is particularly true if they don't feel able to resolve the situation. You can avoid this kind of emotional generosity burnout by taking breaks, checking your boundaries and strengthening your ability to cope in such a demanding role.  It helps to build trust between managers and team members and develop honesty and openness. But empathy is most valuable when it's combined with action.
+
+#### Compassionate Empathy
+
+Compassionate empathy is the most active form of empathy. It involves not only having concern for another person and sharing their emotional pain, but also taking practical steps to reduce it. For example, imagine that one of your team members is upset or angry because he or she delivered an important presentation badly. Acknowledging their hurt is valuable and affirming their reaction by showing signs of those feelings yourself is even more valuable. But best of all is putting aside some time for them and offering practical support or guidance on getting through the situation and preparing for next time.
+
+### Techniques for Building Empathy
+
+Empathy is one of the five key components of ESI, emotional and social intelligence, and it helps to build trust and strengthen relationships. To use empathy effectively, give people your full attention, looking out for verbal and nonverbal clues to help you fully understand their situation. Set aside your own assumptions, acknowledge people's feelings, allow an emotional connection, and then take positive action that will improve your and their well being.
+
+**1. Challenge yourself:**
+* Undertake challenging experiences that push you outside your comfort zone
+* Doing things like this will humble you, and humility is a key enabler of empathy
+
+**2. Get out of your usual environment:**
+* Travel, especially to new places and cultures. It gives you a better appreciation for others
+
+
+**3. Get feedback:**
+* Ask for feedback about your relationship skills from family, friends, and colleagues, and then check in with them periodically to see how you're doing.
+
+**4. Explore the heart:**
+* Read literature that explores personal relationships and emotions. This has been shown to improve the empathy of young doctors, for example.
+
+**5. Walk in other people's shoes:**
+* Talk to others about what it's like to walk in their shoes about their issues and concerns, and how they've perceived experiences you've both shared. You can explore a powerful approach to seeing others points of view with this exercise.
+
+**6. Examine your biases:**
+* We all have hidden and sometimes not so hidden biases that interfere with our ability to listen and empathize. These are often centered around visible factors such as age, race, and gender. Don't think you have any biases? Think again, we all do.
+
+**7. Cultivate your sense of curiosity:**
+* What can you learn from a very young colleague who's inexperienced? What can you learn from a client who's older and more experienced? Curious people ask a lot of questions leading them to develop a stronger understanding of the people around them.
+
+**8. Listen more:**
+* Listen more carefully to what someone's trying to tell you. Use your ears, eyes, and gut instincts to understand the entire message that they're communicating. Start with listening for keywords and phrases that they use, particularly if they use them repeatedly. Then think about how as well as what they're saying. What's their tone or body language telling you?
+
+**9. Ask better questions:**
+* Bring three or four thoughtful even provocative questions to every conversation you have with clients, or colleagues, or family members. Prepare for the conversation to change direction as the other person's thoughts and feelings also change.
+
+**10. Take action:**
+* There's no one right way to demonstrate your compassion and empathy. It will depend on the situation, the individual, and their dominant emotion at the time. Remember, empathy is not about what you want, but what the other person wants and needs. Any action you take must benefit them. Remember, that empathy is not just for crisis. Seeing the world from a variety of perspectives is a great talent, and it's one of those that you can use all of the time in any situation. This adds to your adaptability and resilience.
+
+**11. Random acts of kindness:**
+* Brighten anyone's day and make us feel more empathetic. Practice these skills often. When you take an interest in what others think, feel, and experience, you'll develop a reputation for being caring, trustworthy, and approachable, and you'll be a great asset to your team and your organization.
+
+#### Shifting Perceptual Positions - Walking in Another's Shoes
+
+It has been said that one of the best ways to understand another person’s point of view is to walk a mile in his or her shoes. Using perceptual positions, a person can mentally review (or preview) a situation from a number of different standpoints in order to enrich their appreciation of what is involved.
+
+* **Shifting perceptual positions can help you gain a new perspective on a problem or challenge or learn from an experience.**
+
+The idea of multiple perceptual positions in NLP was inspired by Gregory Bateson, modelled from Virginia Satir and developed in use by John Grinder. By adopting different perceptual positions people can develop new choices for responding to events.
+
+For example: A school day when it starts to snow heavily looks very different from the viewpoint of a pupil, parent, teacher and bus driver. Knowing what to do is almost inevitably harder if the Principal does not consider the views of
+everyone involved.
+
+This picture describes the 3 positions you can take:
+
+![](other_persons_shoes.png)
+
+We would like you to use these position descriptions to help you evaluate an event or relationship in your own life. You may use the example of the school day where it is snowing if you can't think of an example from your life.
+
+**See the situation from the first position - You**
+
+See the situation through your own eyes. Be aware of your own thoughts and feelings and how they are impacting on the relationship or event. What are your own needs? What do you want to have happen?
+
+**See the situation from the second position - Other**
+
+Imagine what it is like to be the other in the situation. Put yourself in their shoes - as if you are looking back at yourself, seeing, hearing, and feeling as the other person would, given their own map of the world. What are their needs? What do they want to have happen? What intention lies behind their words and actions?
+
+**See the situation from the third position - Meta**
+
+Take a detached viewpoint and look at the system as a whole. Imagine looking at yourself and the other person 'over there' seeing the two of them interacting. Pay particular attention to actual behavior, body language and the sound of
+their voices. What helpful wisdom or advice would you (or someone else) give the you ‘over there’?
+
+**Now go back to the first position – You**
+* What is different, what has changed?
+* What new options and choices do you now have?
+* How will your insights affect the situation or relationship in the future?
+
+#### More on Listening
+
+> People start to heal the moment they feel heard.
+>
+-[Cheryl Richardson](https://cherylrichardson.com/)
+
+> Listening is the art that requires attention over talent, spirit over ego, and others over self.
+>
+-Dean Jackson
+
+There are so many great quotes about listening, probably because it is the skill we all want to see more from people. If you truly want to build your empathy, you must learn to listen.
+
+##### Why is listening so hard?
+
+* We listen at 125 – 250 words per minute, but we think at 1000 – 3000 words per minute.
+* According to a study in the year 2000, humans had an attention span of 12 seconds—only 33% longer than a goldfish at 9 seconds. Recently, Microsoft discovered that the average person's attention span is now less than a goldfish at a mere 8 seconds.
+* Most of us are distracted, preoccupied, or forgetful about 75% of the time we should be listening.
+* Immediately after listening, we recall about 50% of what we hear.
+* Long term, we remember only 20% of what we hear.
+
+##### The Five Blind Spots
+**1. Assuming everyone thinks like me.**
+* Too attached to your own point of view, addicted to being right.
+
+**2. Feelings change our reality.**
+* (Dis)Trust changes how we see reality.
+
+**3. I am too fearful to empathize.**
+* When we are upset we are unable to connect.
+
+**4. I remember, therefore I know.**
+* We actually remember what we thought about what the person was saying, not what they said.
+* We drop out of conversation every 12-18 seconds to process what people say.
+
+**5. I am listening so I actually know what you really mean.**
+* Meaning resides in the listener, not the speaker.
+* We pull meaning from our past experiences to help us interpret what we hear.
+
+##### Keys to Effective Listening
+
+> "We listen in order to learn and retain information. If we are speaking, we are not listening or learning anything to add to our sum of knowledge. This is why the first step to effective listening is to stop talking!"
+>
+-Ken Fracaro
+
+1. Listen to understand - NOT to respond.
+2. Embrace silence.
+3. Don't interrupt unless given permission. Ask permission at the beginning of the conversation to interrupt in order to ensure the conversation stays on track.
+
+##### Listening Power Tools
+**Paraphrasing** - Paraphrasing shows the other person that you have listened and understand what has been said. To paraphrase, sum up and restate the original information. Your restatement should be shorter than their statements.
+
+Practice by paraphrasing this statement:
+
+"My supervisor really likes my work, and I like the people there. However, I feel like something is missing. I want to have more responsibility, more challenge."
+
+**Reflecting** - Reflecting, or sharing your observations with the other person, can be a powerful tool in your communication. You may hear something that can create new awareness or shift their perspective.
+
+Here are some examples:
+* Emotion in their voice
+* Expression of what they truly value
+* Messages that are inconsistent with their stated goals, values, or priorities
+* Gaps in priorities
+* Assumptions
+* Progress
+* Gaps in critical thinking
+* Gaps in skills, abilities or training
+
+### Ask Better Questions
+
+Here are a list of examples to help you learn to ask better questions.
+
+![](better_questions.png)
+
+
+### Empathy in Practice
+
+**How can you practice and build empathy?**
+
+* Look for the good and similar
+* Assume positive intent, assume that people have the best of intentions
+* Practice a “walk in their shoes”
+* Listen better
+* Try to identify with what the other person is saying and feeling (perhaps by reflecting on an experience you’ve had that produced a similar emotion in you)
+* Look at situation from other person’s point of view
+* Ask, a question is always the answer, if you are in doubt about what the other person may need Ask.  If you are curious about what the other person would do or has done in a particular situation, ASK.  Be open and curious and create a to a dialog for understanding.
