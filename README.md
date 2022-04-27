@@ -500,3 +500,129 @@ Here are a list of examples to help you learn to ask better questions.
 * Try to identify with what the other person is saying and feeling (perhaps by reflecting on an experience you’ve had that produced a similar emotion in you)
 * Look at situation from other person’s point of view
 * Ask, a question is always the answer, if you are in doubt about what the other person may need Ask.  If you are curious about what the other person would do or has done in a particular situation, ASK.  Be open and curious and create a to a dialog for understanding.
+
+## Week 4: Relationship Management
+
+### The Social Brain and Its Superpowers
+* [TED Talk by Matthew Lieberman, PhD](https://www.youtube.com/watch?v=NNhk3owF7RQ)
+
+### Strategies for Building Social Skills
+
+We hope these 10 strategies help you in your efforts to build and maintain relationships.
+
+#### Strategy #1: Observe the ripple effect from your emotions:
+
+Your outpourings of emotion are like stones dropped into a pool of water that send
+ripples throughout the people in your life. Since emotions are the primary drivers of your behavior, you need to understand the effect they have on other people.
+
+Your emotions are powerful weapons and continuing to think that their effects are instant and minimal will only do you a disservice. The key to observing the ripple effects
+of your emotions is to watch closely how they impact other people immediately and then use that information as a guide for how your emotions are bound to affect a wider circle long after you unleash the emotions. The more you understand how your emotions ripple outward, the better equipped you’ll be to choose the type of ripples that you want to create.
+
+Remember in Module 1 we asked you to examine the number of people whom your emotions may be impacting. Now think back to a recent emotionally charged event.
+
+* What Impact did your emotions leave on others?
+* Could it have changed their perception of you?
+* What didn’t you realize at the time of the event?
+* What could you have done differently?
+
+#### Strategy #2: Manage Perception
+
+Perception can be a hard aspect to learn from since most of the time our perception can only be drawn from our own experiences – and we’re pretty biased when it come to our own thoughts. Perception is an important tool in controlling behavior because it helps us determine how we can appear to others and how other people’s behaviors can influence us. Your belief in yourself can affect your perception and can in turn affect your outward behavior.
+
+Review the Ladder of Inference from Week 3- How will you manage your own perceptions?
+
+Manage the perceptions of others:
+
+We may not always know exactly how people perceive us since many will not say these things out loud, but we can make our own conclusions based on our perception of their behavior.
+
+Reflect on your recent interactions at work and answer the following questions:
+
+* Do co-workers come close when they speak to you or do they try to move away?
+* Do they smile and interact with you or do they seem withdrawn?
+* How do your perceptions and thoughts impact people and their behaviors?
+* How likely is it you form some of the same conclusions and determine how to respond to the behaviors they are displaying.
+
+#### Strategy #3: Know Yourself and Your Triggers
+
+Feedback from ourselves can be just as valuable as feedback from others.  As long as we are being honest with ourselves and not self-deceptive. Reflection gives us a chance to learn from our past experiences (even our mistakes) and recognize the chance for learning opportunities. By reflecting on our actions, we can see firsthand what actions
+we took, how they played out, and what kind of effect they had on people.
+
+Reflect on an interaction at work that that triggered a negative emotional response from you.  Use all of your senses to recreate the experience in your mind and reflect on:
+
+* The actions that you took.
+* What behaviors showed up?
+* What did you feel at the time?
+* What type of reactions did you receive from other people?
+
+What could you do differently next time?
+
+#### Strategy #4:  Be open to change
+
+Humans are designed to be creatures of habit. We often have the mindset of “we want what we want when we want it”, and if something throws a kink in our routine, we can get frustrated and upset. Being open to change allows us to adapt to new surroundings and situations and helps us grow as a person. Changing our attitude about ourselves and others can help determine how we build our connections. Sometimes after we receive feedback from our peers, we may need to change how we do things or behave in a group. Perhaps after a meeting we decide we need to change how we plan our presentations. Whatever the reason, it is important to not disregard the importance of your willingness to change and not turn a blind eye to its prospects. Changing how we see ourselves and the people that surround us can have a positive impact on our attitudes and can help build better relationships with our peers.
+
+Tips for accepting change:
+
+* Determine how the change can benefit you
+* Don’t assume a need for change is negative
+* Recognize that change is a chance for improvement
+
+#### Strategy # 5: Separate Facts from Emotions
+
+The main difference between facts and emotions is that facts are based on definite results while emotions are often involuntary and one-sided. But both facts and emotions can affect our behaviors and change how we act towards others. Facts can drive a conversation and allow people to connect on a logical level. Emotions are involved in everything we do, but sometimes they can affect the impact of our behavior and the information we are talking about.
+
+Any social situation is most likely driven with emotions, and sometimes this can cause facts to become irrelevant and even misconstrue the information given. For example, a male speaker may not be taken seriously at a feminism rally, or a group full of teachers may not listen to a group of school board members. When you recognize that emotion may be driving the situation, it’s time to reflect back on the situation and rediscover the facts and figures of the information. You may have to be a leader in the group and remind everyone to focus on the facts and save the emotions for later.
+
+#### Strategy #6: Build Rapport
+
+Rapport occurs when two or more people feel they are in sync or on the same wavelength. Rapport is the basis for building relationships and being able to influence others.
+
+When building rapport get into rhythm with the other person on as many levels as possible. Body Language Mirroring: Follow along with their body language and gestures. If they sit back, you sit back. If they lean in, you lean in. UNLESS they are overly excited (positively or negatively), then keep your body language more relaxed to help get them to follow you. Watch the personal space – if they keep stepping back that is a clue.
+
+Tips for keeping your personal space personal:
+
+* Excuse yourself politely when leaving a group
+* Step to the side a step or two to create subtle distance
+* If possible, walk often or roam about the area
+* Opt for a handshake when greeting people – it allows for the other person to stay at arm’s length
+* Be aware of cultural differences in personal space
+
+Mirroring language and seeking clarity: Use the same words they use and ask for the definition behind those words to help you get more in tune with the other person. For more on Body Language watch Body Language Expert Mark Bowden:  https://www.youtube.com/watch?v=rk_SMBIW1mg&t=153s
+
+Mirror pitch, volume, pace and timbre: Match their tone of voice and the pace of their speech as well as the volume they are speaking. This one works really well in video or phone conferencing situations when you cannot see their full body language. Again, if they are overly excited (positively or negatively), then keep your tone, pace and volume more relaxed to help get them to follow you
+
+Reflect back on any body language cues you may have used and make note of any cues you may have seen in others.
+
+* What intuitions or gut feelings do you feel from the experience?
+* Do you feel as though you have learned anything new from the experience?
+
+These steps and process can help you reflect back on your actions and increase not only your self-awareness, but your awareness of others.
+
+#### Strategy #7: Greet people by name
+
+Greeting people by their names not only acknowledges them as the essence of who they are, but also allows you to remain connected to them in more than just a superficial way. If you find it hard to remember people’s names, try these practices: if the name sounds unusual to you, ask the person to spell it for you so you can picture the name written. Be sure to use the person’s name at least twice during the conversation. Greeting someone by name is one of the most basic and influential social awareness strategies you can adopt. It’s a personal and meaningful way to engage someone.
+
+When we meet new people, sometimes the names or faces can become a blur. Most people are great at remembering one or the other, but rarely both. But rapport depends on being able to recall a person at a later time over many encounters. One of the main reasons we forget a person’s name or face is because we are not truly listening or paying attention when we are being introduced. Don’t be nervous and put your mind at ease so that you can easily register the person’s face and hearing their name with it. When you look at the person, look for any features that stand out, such as hair color, facial features, scars or even the use of makeup. Remembering a key characteristic while fully listening to their name will help keep them associated in your brain to retrieve at a later date when needed
+
+Tips to remember name and faces:
+
+* Say their name immediately after hearing it
+* Don’t be afraid to ask them to repeat their name
+* Associate a gesture with their greeting, such as a handshake or smile
+* Remember distinct features
+
+#### Strategy #8: Make Timing Everything
+
+When dealing with people and their emotions, timing really is everything. You don’t ask for a raise when business is not going well, and you don’t ask for a favor when someone is under a lot of stress or angry. To practice your time as it relates to social awareness, start working on your timing with asking questions. The goal is to ask the right questions at the right time with the right frame of mind, all with your audience in mind, not yourself. The key to social awareness
+is focusing on others instead of yourself so that you can be more effective.
+
+Consider this work situation: You’re talking to a colleague who was venting about her spouse. She’s concerned about her marriage and is showing more emotion than ever. But as a response, you blurt out the question, “Have you thought about what ideas you have for the project proposal yet?” She stares at you blankly and is blindsided by your question. Obviously, you weren’t even listening to what she was saying. Her face drops. The conversation is over. In this case, the timing, the question, and the frame of mind were wrong. You asked the wrong question at the right time for you; but the time and frame of mind of the other person were way off. Remember, this isn’t about you – it’s about the other person.
+
+#### Strategy #9: Be Open and Be Curious
+
+Being open means sharing information about yourself with others. You can use your self-management skills to choose how open you are and what you share but know that there is a benefit to opening up that may help you with your choices: when people know about you, there is less room for them to misinterpret you. For example, let’s say that you are particularly sensitive about showing up five minutes early to meetings, and that you get annoyed when people stroll in at the very beginning of the meeting or even a little late. Some people might interpret this as being uptight and rigid. But if you shared with those same people that you were in the Marines for the first years of your career, your coworkers might understand better and maybe even appreciate your sense of timing and courtesy.
+
+The flip side of being open is being curious about the other person. The more you show interest in and learn about the other person, the better shot you have that meeting his or her needs and not misinterpreting them. Just be sure to keep your tone inquisitive and not judgmental.
+
+#### Strategy #10: When You Care, Show It!!
+
+There are people who do great work around you every day. When you care, show it. Don’t hesitate or put it off until next week. Do something this week or even today. Things as simple as a greeting card or something else inexpensive, yet meaningful, that sums up how you feel are all you need to make an impact and strengthen a relationship.
