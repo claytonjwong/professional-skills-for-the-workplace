@@ -736,3 +736,52 @@ One of the things that can be really helpful is to picture yourself communicatin
 * [Brainstorming techniques](https://www.youtube.com/watch?v=2bNvs_qElIw)
 * [How to use Google Jamboard (tutorial)](https://www.youtube.com/watch?v=S9m4HCjOkcA)
 * [Quantitative Pros and Cons - MindTools](https://www.mindtools.com/pages/article/newTED_05.htm)
+
+## Week 3: Prepare and Recommend
+
+Ask common questions to prepare a robust recommendation by using critical thinking skills to show initiative and improve the odds of approval.
+
+* What is your plan and timeline?
+* What resources and needed for implementation?
+* What potential questions might be asked by the decision maker?
+* How will you ask for approval?
+
+### 6. Prepare and Recommend
+
+#### Be
+
+* Confident and honest
+* Calm and collected (not too excited)
+* Open minded
+* Organized and composed
+* Respectful and prepared for a "yes" or "no"
+
+#### Avoid
+
+* Defensiveness
+* Strong emotions
+* Forceful, threatening, catastrophizing, aggrandizing
+
+### 7. Engage Feedback
+
+#### Saying "yes"
+
+* Yes, I like it as it is, it looks great.
+* That's a great idea. Could we just make these changes?
+* I love that idea, I'd like to get a little bit more details on it though.
+  * What caused you to go in that direction?
+
+#### Saying "no"
+
+* What other solutions were discussed?
+* Well, that's interesting. Tell me how you got to that solution.
+* That's really an interesting idea. You know, some other information that I think we should take a look at before we make our final decision is...
+* Who all did you talk to before you came to that decision?
+  * Recommend others be included on the decision
+* Provide overlooked information or perspective to help develop another solution
+
+#### Resources
+
+* [The Science and Art of Receiving Feedback Well](https://www.youtube.com/watch?v=t2d_O77F8-I)
+* [Critical Thinking and Problem Solving: Make Better Decisions](https://www.youtube.com/watch?v=BX9bAWgiK4w)
+* [Coaching vs. Feedback](https://www.youtube.com/watch?v=Z0XUEb_-T20)
