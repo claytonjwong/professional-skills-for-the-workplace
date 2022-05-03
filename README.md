@@ -626,3 +626,45 @@ The flip side of being open is being curious about the other person. The more yo
 #### Strategy #10: When You Care, Show It!!
 
 There are people who do great work around you every day. When you care, show it. Don’t hesitate or put it off until next week. Do something this week or even today. Things as simple as a greeting card or something else inexpensive, yet meaningful, that sums up how you feel are all you need to make an impact and strengthen a relationship.
+
+---
+
+# Course 2: Critical Thinking Skills for the Professional
+
+## Week 1: Introduction to Problem Solving
+
+* [What is Critical Thinking?](https://www.youtube.com/watch?v=rn_7aJP5BTw)
+* [7 Reasons Why Critical Thinking is Important](https://www.youtube.com/watch?v=kaCIycmx8NA)
+  1. encourages independence
+  2. improves your self-evaluation
+  3. promotes good language and presentation skills
+  4. encourages creativity and innovation
+  5. encourages good decision making
+  6. encourages scientific discoveries and theories
+  7. keeps us up-to-date with the 21<sup>st</sup> century
+
+### 7 steps to problem solving
+
+1. Problem Identification
+2. Reframe
+3. Brainstorm
+4. Choose 3
+5. Advantages & Disadvantages
+6. Prepare & Recommend
+7. Engage Feedback
+
+### 1. Problem Identification
+
+When we have problems where other people are involved it's really important to do this step together. So these are the questions that you need to ask to really understand what's going on when a problem exists:
+* Who, what, when, where, why and how?
+
+Take a reality check with real transparency and access the question:
+* What is my role in the problem?
+
+### 2. Reframe
+
+Transform the problem into an opportunity for improvement.
+
+1. Reframe the problem statement from step 1 into a goal
+2. Agree upon the goal with the involved participants
+3. Formulate a question from the goal to prepare for brainstorming solutions in step 3
