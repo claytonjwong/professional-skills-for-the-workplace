@@ -668,3 +668,71 @@ Transform the problem into an opportunity for improvement.
 1. Reframe the problem statement from step 1 into a goal
 2. Agree upon the goal with the involved participants
 3. Formulate a question from the goal to prepare for brainstorming solutions in step 3
+
+## Week 2: Brainstorming and Analyzing Options
+
+### 3. Brainstorming
+
+There are 2 kinds of brainstorming:
+
+1. Individual
+2. Group
+
+![](brainstorming_individual_vs_group.png)
+
+#### Individual Brainstorming
+
+You don't have to worry about other people's egos or opinions, and you can be freer and more creative.
+
+#### Group Brainstorming
+
+With group brainstorming you can take advantage of the full experience and creativity of all team members. When one member gets stuck with an idea another member's creativity and experience can take that idea to the next stage.  You can develop ideas in greater depth with group brainstorming than you can with individual brainstorming.  Another advantage of group brainstorming is that it helps everyone feel that they've contributed to the solution and it reminds people that others have creative ideas to offer.  It's also fun, so it can be great for team building.
+
+#### Technique for Combining Individual and Group Brainstorming
+
+Let's learn a technique that combines individual brainstorming into a group brainstorming activity. This is a really great approach when blocking occurs. On a piece of paper, each person writes down their own reframed problem at the top of the page. This is the question that you created in step two to launch brainstorming. So for example, my reframed goal orient- goal oriented question is, what strategies can I implement to ensure that I eat healthy and still have time to meet my important commitments?  So then you pass the paper to the right, and the person next to you can write down an idea to solve your problem.
+
+#### Brainstorming Guidelines
+
+![](brainstorming_summary.png)
+
+What about if someone has a good idea? Really, don't say, "hey man, that's a great idea." Seriously, why not? It's hard to not say that's a great idea. The reason we don't say it, is as soon as you say it's a great idea, there's a real pull to stop the brainstorming process and go with that idea. In the moment, it might feel like you're saving time, but in the end, it may not be that long-term solution. Resist the pull to judge, it's not easy, but it's the right thing to do. It keeps the flow of critical thinking going. To summarize, brainstorm non-judgmentally because some of the best ideas come from the ones that are the most ridiculous.  Because even a bad idea can launch the thought process for something that's good. It's better to have crazy and realistic, fun, outlandish ideas than none at all. Then you can pull back later and mold into something that works. You often get the best results of group brainstorming by managing the process according to these guidelines. By doing this, you can get people to focus on the issue without interruption, you can maximize the number of ideas that you generate, and you get that great feeling of team bonding that comes with a well-run brainstorming session.
+
+After all your ideas are on the table, or the wall, or in [Google Jamboard](https://edu.google.com/products/jamboard/), begin to group the ideas together into similar ideas. Have everyone involved in the grouping, makes sure it's not left up to one or even just a few individuals. Why do you think that's important? Well, it's important for buy-in and engagement. When grouping those ideas together, take your time as a group and focus on one conversation at a time. It's easy for small groups to have side conversations and start deciding things in subgroups, really try to avoid that. You might even appoint someone to keep the group focused. You really want to keep everyone on the same page. Once you group the ideas, you'll start to formulate your solution. Here's a graphic to show how your mind-map approach helps you to categorize and wrap up your brainstorming session.
+
+![](group_ideas.png)
+
+#### Brainstorming Summary
+
+* Step 1
+  * brainstorm non-judgementally
+  * share ideas on post-its
+  * group ideas together into themes
+
+* Step 2
+  * discuss and narrow down to 3 solutions
+
+### 4. Choose the Top 3 Solutions
+
+It is important to consider different solutions and different perspectives before continuing onto the advantages and disadvantages of each individual solution to consider all data points and stakeholders of the problem and its proposed solutions.
+
+### 5. Advantages and disadvantages
+
+* Success or failure?
+* Long-term result or temporary fix?
+* Potential outcomes?
+* Who will support each one and why?
+* Viable solution for long-term results?
+
+#### Rubber Ducky
+
+One of the things that can be really helpful is to picture yourself communicating these ideas and what do you think people's responses will be? How might this idea play out? What could possibly happen both positive and negative? What pushback will there be?  What potential subsequent problems might exist? Will this solution have any barriers as far as logistics or budget? Will leadership buy-in? Is it practical? Are there any communication challenges involved in rolling out this solution?  Other considerations might be around culture, rules, regulations, processes, procedures, human resistance to change, etc.
+
+#### Resources
+
+* [Dogs solving problems](https://www.youtube.com/watch?v=mQEmjNqwZRk)
+* [Theo crosses the bridge](https://www.youtube.com/watch?v=m_CrIu01SnM)
+* [How to think, not what to think](https://www.youtube.com/watch?v=6dluwVks444)
+* [Brainstorming techniques](https://www.youtube.com/watch?v=2bNvs_qElIw)
+* [How to use Google Jamboard (tutorial)](https://www.youtube.com/watch?v=S9m4HCjOkcA)
+* [Quantitative Pros and Cons - MindTools](https://www.mindtools.com/pages/article/newTED_05.htm)
