@@ -785,3 +785,181 @@ Ask common questions to prepare a robust recommendation by using critical thinki
 * [The Science and Art of Receiving Feedback Well](https://www.youtube.com/watch?v=t2d_O77F8-I)
 * [Critical Thinking and Problem Solving: Make Better Decisions](https://www.youtube.com/watch?v=BX9bAWgiK4w)
 * [Coaching vs. Feedback](https://www.youtube.com/watch?v=Z0XUEb_-T20)
+
+## Course 3: Growth Mindset
+
+### Week 1: Introduction
+
+What you will learn:
+
+* **Discuss** and **define** what is growth mindset
+* **Contrast** growth mindset with fixed mindset
+* **Discover** what is fixed vs. growth mindset
+* **Apply** techniques to shift from fixed to growth mindset
+
+Growth mindset shift exercises:
+
+* Write out a script
+* Engage in role-playing
+* Help you implement an action plan
+* Growth mindset is evolving and changing (we can iteratively improve)
+
+What will you gain:
+
+* Principles that are both theoretical and applicable
+* Principles that are holistic and apply to all areas of your life
+* Principles that apply as an employee and a supervisor
+* Give and receive feedback using a growth mindset
+* Stop being addicted to the fixed mindset praise
+
+Who will benefit?
+
+* Negative evaluation at work?
+* Passed over for promotion?
+* Failed at work?
+* You genuinely want to improve your mindset for your career
+
+### Foundations of a Growth Mindset
+
+> Let go of who you think you should be in order to be who you are.  Be imperfect and have compassion for yourself.
+>
+-[Brene Brown](https://brenebrown.com/)
+
+#### Fixed Mindset
+
+Intelligence is static.  This leads to a desire to look smart and therefore a tendency to:
+
+* **Challenges:** avoid challenges
+* **Obstacles:** give up easily
+* **Effort:** see effort as fruitless or worse
+* **Criticism:** ignore useful negative feedback
+* **Success of Others:** feel threatened by the success of others
+
+#### Growth Mindset
+
+Intelligence can be developed.  This leads to a desire to learn and therefore a tendency to:
+
+* **Challenges:** embrace challenges
+* **Obstacles:** persist in the face of setbacks
+* **Effort:** see effort as the path to mastery
+* **Criticism:** learn from criticism
+* **Success of Others:** find lessons and inspiration in the success of others
+
+##### Benefits Growth Mindset
+
+We are more likely to:
+
+1. Start
+2. Stick with it
+3. Stay hungry
+
+##### Characteristics of Growth Mindset
+
+* Intellectually curious, lifelong learners
+* Creative (thus more resilient)
+* Flexible and adaptable (thus handle change well)
+* More collaborative
+  * don't get stuck thinking their way is the best or only way
+  * thinking on their own (not just following the group decisions)
+* Failure is temporary setback which can be overcome
+  * Feedback is accepted as constructive criticism
+
+#### 4-Step Mindset Shift Process
+
+1. Listen to that fixed mindset voice
+2. Recognize the patterns
+3. Identify areas you want to shift
+4. Practice
+
+##### Step 1: Listen
+
+* To the fixed mindset voice
+* Name your voice
+  * Persona
+  * Name
+  * Label
+* Gives you objectivity and distance (a perspective outside of yourself)
+
+##### Step 1: Questions to Consider
+
+* What happens when that fixed mindset voice shows up?
+* How does it make you feel?
+* How do you react?
+
+##### Step 2: Recognize Patterns
+
+What **triggers** the fixed mindset?
+
+* Stress
+* Anxiety
+* Really busy
+* Tight deadlines
+* New or challenging projects
+* Particular person or relationship
+
+##### Step 2: Questions to Consider
+
+* What circumstances or situations where you feel the fixed mindset?
+* What events take you to a place of judgement and others?
+
+##### Step 3: Identify Your Shift
+
+Identify which patterns you actually want to shift to a growth mindset.  Pay attention to:
+
+* How you react to mistakes
+* How you react to challenges
+* How you react to receiving feedback and constructive criticism
+
+##### Step 4: Practice
+
+* Focus on shifting to a growth mindset
+* Practice the mindset shift exercises throughout this course
+
+### New Pathways to Learning: Geeking Out on Neuroscience
+
+#### [Neuroplasticity (2 mins video)](https://www.youtube.com/watch?reload=9&v=ELpfYCZa87g)
+* The idea that our brain (neuro) can be molded (like plastic)
+* What we focus on and how we discipline our thoughts and attitudes encourages brain growth in those areas
+* New neural pathways are made
+* What fires together, wires together
+* Brain is like a muscle, so we need challenge and obstacles to grow
+
+### The Art of Becoming
+
+> The journey between who you once were and who you are now becoming, is where the dance of life really takes place.
+>
+-[Dr. Barabara De Angelis](http://barbaradeangelis.com/)
+
+How do we bridge the gap between who we are and who we want to be?
+
+1. Deliberate Practice
+2. The Power of "Not Yet"
+
+#### Deliberate Practice
+
+Work that stretches us beyond our comfort zone.  Create plan and execute it to push the brain to grow.
+
+* Be purposeful and systematic
+* Requires focused attention
+* Be deliberate and practice
+
+#### The Power of "Not Yet"
+
+A mindset reframe when we plateau and/or get stuck: "I can't do this... **yet**"
+
+### Mindset is a Spectrum
+
+Does mindset change?  Yes, many factors influence our mindset moments which vacillate from fixed mindset to growth mindset:
+
+* the location and environment
+* the people we interact with
+* the project we are working on
+
+Because our ephemeral mindset varies, we need to pay attention to how we are reacting in different circumstances and settings: work, family, community, friends, volunteer activities, sports, athletics, and hobbies.
+
+### Organizations Can Exhibit a Growth Mindset
+
+![](org_growth_mindset.png)
+
+* Growth mindsets transfer from one domain to another
+* People are the soul of an organization, so yes it can have a mindset
