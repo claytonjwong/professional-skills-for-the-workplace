@@ -780,6 +780,29 @@ Ask common questions to prepare a robust recommendation by using critical thinki
   * Recommend others be included on the decision
 * Provide overlooked information or perspective to help develop another solution
 
+#### Supplemental Critical Thinking and Problem Solving
+
+There are 4 types of brain frequencies:
+
+1. Alpha: 8 - 13 Hz
+2. Beta: 14 - 26 Hz
+3. Theta: 4 - 8 Hz
+4. Delta: 0.5 - 4 Hz
+
+![](alpha_beta.png)
+
+**Beta Waves:**
+* logical thinking
+* problem solving
+* managing daily activities
+
+Note: when beta waves are in overdrive, we have **zero creativity**
+
+**Alpha Waves:**
+* bridge between  conscious and subconscious
+* high creativity
+* imagination & visualization
+
 #### Resources
 
 * [The Science and Art of Receiving Feedback Well](https://www.youtube.com/watch?v=t2d_O77F8-I)
