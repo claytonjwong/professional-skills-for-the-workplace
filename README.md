@@ -986,3 +986,65 @@ Because our ephemeral mindset varies, we need to pay attention to how we are rea
 
 * Growth mindsets transfer from one domain to another
 * People are the soul of an organization, so yes it can have a mindset
+
+### Week 2: Internal and External Roadblocks to Growth Mindset
+
+The first one is the biggest one because it deals with people.  People, can be an external roadblock to growth mindset.  Think of the people that you work with, the people that you live with and the people that you interact with in your life and your business and your career on a daily basis.  Think about whether or not these different people are actually holding you back by having their own fixed mindset.
+
+#### 5 Myths (External Roadblocks)
+
+##### Myth 1: False mindset
+
+The first myth, has now been referred to as false mindset. That myth is that, if you are a nice person and you, let's say you're open-minded, that therefore you have a growth mindset, they're not synonymous. Although, being a nice person, and having, let's say this wonderful open-minded outlook in life, although that's a great attribute, it does not equate to an actual growth mindset. Let's remember, what is a growth mindset? It is the belief that you and other people and your abilities and knowledge and everything that makes up who you are, can be improved, and that you will learn from challenges and setbacks. That really doesn't have to do with being nice and it doesn't have to do with being open-minded, although those are wonderful things, they are separate from growth mindset.
+
+##### Myth 2: Having a positive can-do attitude needs to be in place at all times
+
+The second myth, is that having a positive can-do attitude needs to be in place at all times. This is a myth about growth mindset that has been used against workers often by leaders and supervisors. Sometimes workers have too much work. They just have too much on their plate and they are at capacity, and we cannot stretch the laws of physics and time and space, and yet your supervisor or a co-worker might say, well, you don't have a growth mindset because you don't have a positive can-do attitude about everything on your to-do list, and all of the projects on your plate. You know, sometimes having a bad attitude can be used against you, and again, I get that, it's a great attribute to have a positive can-do attitude. But it's not quite the same as growth mindset. Let's make sure we're not using against people productivity by saying, "Hey, if you can't keep up, then you are not growing and you don't have a growth mindset." Because remember, growth mindset again, is about the belief that you can continuously improve. But you can't continuously improve, if you have too much work to do within a specific framework.
+
+##### Myth 3: Growth is unbounded or limitless
+
+We like to tease that this can also be known, this myth, as anybody can be an opera singer, anybody can be Pavarotti, and that's not true. Some of us can improve our singing, but we will never be, let's say a professional opera singer. The idea that growth mindset is unbounded can actually hinder you from excelling at what you're really good at, and focusing on the job that you're supposed to be doing. Because you're always trying to improve in an area where there might be just a natural ceiling, and you're never going to excel beyond a certain level no matter how much you grow. Be careful with the false mindset of, growth mindset is unbounded or limitless because, it's not. You can get better at certain things, but you might not ever become, let say a master. Mastery might be out of reach just for certain types of abilities.
+
+##### Myth 4: Growth mindset is only about praising effort
+
+This one has been widely misunderstood, and it is a huge misconception in education and teaching. You might have heard the phrase before, praise the process, not the outcome. That's still not absolutely accurate for growth mindset.  We will talk a lot more about this when we get to module 4, and we cover how to give and receive feedback with a growth mindset in place.  But the quick way of talking about this is, what should you be praising?  Well, you should be praising not just someone's effort, because what if their efforts still lead to an ineffective outcome?  What you should be praising is, did they change things up?  What are the strategies that they put in place?  Did they ask for help?  A really great way around this is, instead of praising the process or the outcome, ask questions and show interest.  What did you do to improve here?  What did you do differently this time?  What type of strategies did you employ?  Did you ask for help, and from whom, and from where?  Actually showing interest in the process itself, but not praising the process, and not praising the outcome might actually be the way to go often.
+
+##### Myth 5: Growth mindset means striving for business growth
+
+We're going to talk about this a lot more when we get to module 3, and we cover growth mindset at an organizational and leadership level.  But I want you to think about it like this, growth mindset is about whether the people that work for that organization, including you, can be stretched beyond the abilities where you are currently find yourself.  It is not about the bottom line.  When you hear growth within business, people think you mean make more money, a bigger return on your investment, and that is not again what growth mindset means.  Don't confuse growth mindset at an organizational level, with the bottom line and making more money.  Striving for business growth is more about the people that work for the organization, and their mindsets and less about making more money and being more financially sound.
+
+#### Internal Roadblock 1: Limiting Beliefs
+
+You may have heard of limiting beliefs and they are exactly like they sound. They are beliefs that we carry about ourselves that put up a roadblock for improvement and a roadblock that's often difficult to overcome.
+
+It often becomes a self-fulfilling prophecy when you believe in these limiting beliefs.  You don't pay attention anymore to the times when you actually prove yourself wrong.  So you don't notice or pay attention to the progress or even sometimes to the success.  It becomes a little bit of this self-fulfilling limiting beliefs cycle which we have to breakthrough.  One way to breakthrough it is to use your brain.  There is something in your brain called the **reticular activating system** or the **RAS**.  It often tells you what to pay attention to.  We're going to try to **retrain your RAS to pay attention to positive things and empowering beliefs** and to not focus as much on limiting beliefs **the thinker thinks** and **the prover proves**, and **we want to prove yourself wrong**. In order to shift to these empowering beliefs, we need to do a few things because **empowering beliefs are the opposite of limiting beliefs**.  Limiting beliefs often show up as absolutist thinking.  They often show up in these specific phrases such as, "I can't, I don't have, I'm not able to."  Basically, "I can't, I don't have, I'm not able to, or just I'm not; I'm not this, I'm not that."  What we want to do is we want to reframe this absolutist thinking to more growth mindset thinking and freezing.  In order to do that, I've given you two exercises:
+
+##### Reframe Limiting Beliefs into Empowering Beliefs
+
+One of them is called the reframe exercise. I'm actually giving you examples of limiting beliefs statements.  Your exercise is to reframe them so they're no longer a limiting beliefs, but they become empowering beliefs.  You'll see that it's a simple exercise, but it's a very powerful one.  Now to look at the way to reframe those, and then to make sure that you're doing that for yourself.
+
+##### Triple Three Overcoming Limiting Beliefs Daily Exercises
+
+That's where you list three limiting beliefs that you have around, let's say something having to do with your career, your job, your work, or your personal life.  Then you're going to list three things that you could do on a daily basis to overcome those limiting beliefs.  Then you're going to list three people that you work with, live with, or interact with that can help support you in moving to a more growth mindset and thinking about using empowering beliefs instead of limiting beliefs.
+
+#### Internal Roadblock 2: Comparison Trap Syndrome
+
+>Be a first rate version of yourself rather than a second rate version of everyone else.
+>
+-[Judy Garland](https://en.wikipedia.org/wiki/Judy_Garland)
+
+That's basically a great way to sum up the comparison trap syndrome.  How does the comparison trap syndrome get in the way?  Fixed mindset people will have one of two things that they do with a comparison trap syndrome:
+
+1. If they happen to be really good at something, fixed mindset people, because they're so defined by their abilities, will look down their nose at other people and become very much judges and not allies.  Instead of wanting to help other people get better, it makes them feel good that they're better than these other people at this particular task, skill, ability, etc.  They're not very good allies to other people and they're not encouraging other people to grow.
+
+2. The second way that fixed mindset people get stuck in the comparison trap syndrome is when they're not as good as someone else at something.  They look at that gap between where they are and where they want to get to, in terms of improvement, as daunting. It's not motivating to them to look at other people and know that other people are already excelling in these other areas.  They're not motivated by it all, they're absolutely disheartened by it.
+
+##### How to Overcome the Comparison Trap Syndrome
+
+The growth mindset way of dealing with comparison trap syndrome is to look at where you are and where you want to get to and look at others who have already achieved the level of where you want to go and be motivated and inspired by it and try to learn from them. You look at where they got to as attainable and you want to know, what were the strategies?  How did they grow?  How did they stretch outside of their comfort zone? Then you want to try to employ some of those strategies for yourself.  It's a much better way of dealing with the comparison trap syndrome than a fixed mindset. Look at other people and go learn from them.  Don't compare yourself using a fixed mindset.
+
+One thing that we can think of is watch great communicators and watch great public speakers and learn from them.  That's a way of shifting to a growth mindset in the comparison trap syndrome area where you're looking at others to learn more, as opposed to either feeling less than or being judgmental.
+
+#### Internal Roadblock 3: Negative Self-Talk
+
+I'm going to implement a rule for this course that I hope you can continue long after you finished taking this course, and it is called **the no negative self-talk rule**.  I'd love for you to implement this for yourself, and for those that you work with, your team, your staff members, your coworkers, and maybe some family and friends, because we can all benefit from it. Scientists have studied this, and neuroscientists believe that we all have about 60,000 thoughts per day. That's about a thought per second. Then out of those 60,000 thoughts per day, 95 percent of them, which is a large amount of them, are the same thoughts that you've had day in and day out. They become your habitual thoughts. Out of those habitual thoughts, the average person, 80 percent of those habitual thoughts are negative. Now let's do the math. That means that every day, the average person has about 45,000 negative thoughts. That's a lot of negativity that's going on. I like to tell my clients not to let the biggest enemy you have live between your own ears.  **The no negative self-talk rule means that you need to take all of the negative self-talk that you're giving yourself, either internally or even out loud, and you need to flip it and make it more positive because words are very powerful.**  If we're going to have all of these habitual thoughts that are looping through our brains every day, why not let some of them be more positive?
