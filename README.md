@@ -1048,3 +1048,152 @@ One thing that we can think of is watch great communicators and watch great publ
 #### Internal Roadblock 3: Negative Self-Talk
 
 I'm going to implement a rule for this course that I hope you can continue long after you finished taking this course, and it is called **the no negative self-talk rule**.  I'd love for you to implement this for yourself, and for those that you work with, your team, your staff members, your coworkers, and maybe some family and friends, because we can all benefit from it. Scientists have studied this, and neuroscientists believe that we all have about 60,000 thoughts per day. That's about a thought per second. Then out of those 60,000 thoughts per day, 95 percent of them, which is a large amount of them, are the same thoughts that you've had day in and day out. They become your habitual thoughts. Out of those habitual thoughts, the average person, 80 percent of those habitual thoughts are negative. Now let's do the math. That means that every day, the average person has about 45,000 negative thoughts. That's a lot of negativity that's going on. I like to tell my clients not to let the biggest enemy you have live between your own ears.  **The no negative self-talk rule means that you need to take all of the negative self-talk that you're giving yourself, either internally or even out loud, and you need to flip it and make it more positive because words are very powerful.**  If we're going to have all of these habitual thoughts that are looping through our brains every day, why not let some of them be more positive?
+
+### Week 3: Organizational Mindset
+
+An organization with a fixed mindset is often known as a culture of genius and an organization with a growth mindset is often known as a culture of development.
+
+#### Organizational Fixed Mindset
+
+An organizational fixed mindset is when the organization believes that it's employees have a certain amount of talent, and that's it. That they really can't do much more than what they'd been already hired to do and the talent level that they are exactly like a snapshot in time of when they're hired. Let's think about that because that usually stifles collaboration and innovation. It also can cause the very employees that they hired thinking that they were superstars for their specific level of talent for example, or genius. It can cause those people to become very competitive with each other, to become very judgmental and to get very set in their ways. It really stifles growth on an organizational level and it also can mean that they're not going to be a lot of people that grow in their potential and level up to leadership, if that is what they might have been able to do in a cultural development. Organizations with a fixed mindset that hire solely for a certain amount of talent and not for people's potential, actually stifle growth
+
+#### Organizational Growth Mindset
+
+They have significantly more positive views about their employees. They believe that their employees can learn and grow. They hire them not only for the talent they have right now, but for the potential to develop in the future. They often see people rising to the level of leadership that they might not have seen if those people were in a culture of genius, otherwise known as a fixed mindset organization. In these particular organizations where they foster growth mindset, again, you can see innovation and lots of collaboration going on. People aren't as afraid to take chances and they're not as afraid to stretch and grow and really, really live up to their potential.
+
+#### Fostering an Organization
+
+The key is to maintain high standards, but to do so in a nurturing and developmental type of environment.
+
+1. The organization values learning, improvement, and perseverance (not just ready made genius and talent).
+2. Position supervisors in your organization as resources for learning.
+  * So you don't want to just position your supervisors as people that are judgmental and that just basically constantly keep employees in line or reprimand. But as people that your employees can go to as a resource for learning and to talk about process and improvement, and setbacks and mistakes, and maybe ask them for lessons learned, how did you overcome this obstacle? How did you learn this?
+  * You also want people to be able to come to your supervisors and ask for assignments to be delegated to help them improve their skill set. And so, if you are a supervisor, you want to think about delegating to the people on your team not just to get work off your plate, which I understand is a reality but to also improve their skills and their talent and help them grow.
+3. Present skills as learnable.
+  * So you want to create a space where learning is cultivated, and people can easily and freely talk about setbacks and failures.
+  * And if you're a supervisor, this might be something that you incorporate into a weekly or monthly staff meeting. Say okay, anyone have a failure or a setback in the last week and learn from it and even just having that conversation would help foster a growth mindset.
+4. Place a value on the development of your employees.
+  * If you're the supervisor, are you creating learning experiences for them such as trainings and workshops? Are you coaching them? Are you giving them stretch assignments?
+  * If you're a co-worker, what can you do to foster more learning and place a value on the development of you and your team members?
+5. Giving feedback in a way that promotes learning and future success.
+  * So oftentimes when we're giving feedback, we're, we're working too much to give feedback in a way that seems like it's, they call it constructive criticism. But it's just kind of mean spirited, or it's just pointing out what was done wrong, but not in a way that helps someone developer learn.
+  * So think about giving your feedback. In a way that actually get someone out of a fixed mindset, and helps them look towards the future with a growth mindset. So remind them of a time when they were successful at something that they didn't think they could originally do. And if you're getting the feedback, ask your supervisor. For ways to improve, and ask your supervisor how he or she learned this and excelled, and if he or she was always good at it, or if it was something that maybe they had to work at.
+
+#### Qualities That Lead to Growth Mindset in an Organization
+
+* Innovation - thinking outside the box, first to market, early adopter
+* Flexibility - ability to change and pivot
+* Motivated employees – eager to learn
+* Empowered workforce - comfortable taking risks, making decisions, bringing new ideas
+* Compassion for employees – investing in their development
+
+#### Everyday Compassion at Google
+
+[TED Talk: Everyday compassiom at Google](https://www.ted.com/talks/chade_meng_tan_everyday_compassion_at_google?language=en)
+
+##### Compassion creates highly effective business leaders.  There are 3 components of compassion:
+  * Affective: "I feel for you"
+  * Cognitive: "I understand you"
+  * Motivational: "I want to help you"
+
+It takes a special kind of leader to move companies from "good" to "great.  Highly capable leaders are humble and ambitious (for the greater good).
+
+#### Compassion creates an inspiring workforce as employees admire and respect each other towards greater good.
+
+1. Create a culture of compassion for the greater good
+2. Autonomy to allow employees to choose how to solve problems
+3. Focus on inner development and personal growth
+
+##### Fostering Compassion
+
+1. Attention: basis for all cognitive abilities via a calm mind
+2. Self-mastery: clearly see our thoughts and emotions in the moment
+3. Mental habits: "I want you to be happy" -- a good habit for external thoughts when interacting with people
+
+#### Fixed vs. Growth Mindset of Leaders
+##### Fixed Mindset of Leaders
+
+Well, they simply look for existing talent and they judge employees as competent or incompetent at the start, and that's that. It often causes them to not be able to see the growth, and so even when someone on their team is growing and is improving and is doing something fantastic and innovative, they don't see it. Their initial impression is the one that they always hold in their mind, and they sometimes don't even take notice, which is really sad. It's very limiting fixed mindset believe. They're also less likely themselves, these leaders, to seek or accept critical feedback from their employees and from their team. Why get feedback if they can't change? They do relatively little developmental coaching of their employees because again, why waste my time on that when they don't think you can change? That is a very fixed mindset leader or fixed mindset manager approach
+
+##### Growth Mindset of Leaders
+
+They think it's a really nice to have talent, but that's just the starting point. They are more committed to helping you develop and grow. Because of that, they're going to take notice of improvements and changes, and they're going to give you a little more developmental coaching and feedback because they think they can contribute to that changing growth. They also are more likely to listen to you when you come to them and give them some feedback in how they could be a better manager to you or listen to you when you talk about certain assignments, tests, and talents that you want to improve. It's a little more of a two-way street.
+
+#### Fixed vs. Growth Mindset of CEOs
+
+CEO disease: it's when a CEO reigns from atop of a pedestal and wants to be seen as perfect. They even sometimes let the organizational ship go down because they can't save it because they're too concerned with their own fixed mindset. In this type of setting, everything revolves around pleasing this boss. Because of that, the leader becomes the main source of stress. It's what people worry about, it's what they focus on, and that stagnates growth for the entire organization and it also hinders performance and innovation at teamwork. Everyone that works for this type of CEO who has this fixed mindset CEO disease feels judged. Usually, they're not performing at their best and it's all about the outcome and it's never about the change, and the innovation, and the collaboration, and the growth. If you fail and you are not the best, then it's all been wasted in the mind of this type of CEO.
+
+#### Growth Mindset Leadership
+
+Leaders with a growth mindset believe that others have talent and intelligence as a starting point, but that it can be cultivated, and grown, and developed, and improved. Because of this, it's really interesting because people that have a fixed mindset, what do they really want? They want to get to the top, they want to prove themselves and be considered the best. That's a way they very much define themselves. But the people that wind up often getting to the top, getting promoted, and moving up in their careers are people with a growth mindset. It's because they have this natural motivation and growth potential. They are enthusiastic about their work and their learning all along and improving.
+
+##### 3 Key Behaviors of Growth Mindset Leadership
+
+1. They tell growth mindset stories. They're not afraid to talk about how they grew, what their setbacks were, and they're not afraid to point out examples in others either, to show how others have grown and overcome obstacles and setbacks.
+2. They don't fear feedback and failure. Failure to them in themselves and others is just an obstacle or a challenge to be overcome and learned from. Feedback, either getting it for themselves or giving it to others, again, is an example of a way that people can improve, and so they don't fear it.
+3. They reward effort, not just outcomes.
+
+#### Best Practices for Growth Mindset at Work
+
+* Remind yourself that people can develop their abilities.
+* Think of areas in which you or someone else had low ability, but now performs at a higher level, or learned to do things you never thought you could do.
+* Change the stories you tell to team members.
+* Celebrate your mistakes or failures and how you learned from them.
+* Reward your own efforts – without ever having to tell your supervisor you’re redefining the goals for your own success.
+
+#### Positivity Quotient
+
+Your optimists truly believe that things can go right and they believe that if they keep plugging away at their goals, they will succeed and so you've heard the phrase, the glass is half-full and that's exactly how people describe an optimist. A pessimist has very fatalistic or negative thinking and despite maybe lots of effort, they truly believe things will go wrong. It's difficult for them to move forward with things because they have this very fatalistic view. Again, you've heard the concept that, the glass is half empty, which is a very negative way of looking at it. There's a third level of the positivity quotient and it is called the defensive pessimist. A defensive pessimist is someone that doesn't just focus on whether something can go right or doesn't just believe something will go wrong, but they look ahead. They look into the future to determine what might go wrong and how to avoid it. They only go into this pessimists side as a way to defend it so that it doesn't happen and they are extremely useful to have on your team.
+
+#### Overcoming Group Think
+
+1. Ask for and use the expertise of your team members. Cultivate trust by showing respect for their views, for their knowledge and empathy, for the fact that change is difficult, but that they want to bring up change and they want to sure that they are heard.
+2. Another way to cultivate collaboration and overcome group think is to discuss the potential changes before they're implemented. This one is so important. When people have a chance to have a say in the changes, they are more invested in them. So ask your team members to state what changes need to be made, when and how to implement them.
+3. Be a defensive pessimist and look at what could go wrong and why to plan for that in advance.
+4. Assign people the role of devil's advocate to say, I want you to research the opposite of what we're planning to do, and are there any other alternatives to what we're planning to do? Could you take an opposing viewpoint to see if there are holes in what we're planning to do. So get people to debate the issue and to look at it from different sides.
+5. Have an old-fashioned suggestion box that's anonymous, where people actually have the right to voice their views. You could do that digitally, you could do it in old-fashioned way where people freight on an index card or piece of paper. Remember that people can be independent thinkers and still be team players.
+
+#### Navigating Change
+
+> I can't understand why people are so frightened of the new ideas. I'm frightened of the old ones.
+>
+-[John Cage](https://en.wikipedia.org/wiki/John_Cage)
+
+Change is a new beginning. For some people that means mourning the loss of what's ending. A lot of fixed mindset people will hyper-focus on what's changing, what they're leaving, what they're running away from, as opposed to focusing on what they're going towards, what they're running towards, what the change may bring, and the fact that it may bring something better. The growth mindset way of looking at change is that yes, it's a transition, but it's a learning process and it's a growth process, and therefore it's one to be embraced as much as possible.
+
+##### Key Questions to Process Change
+
+Questions to help you overcome the resistance to change by using a growth mindset:
+
+1. What is changing?  What actually will be different because of the change?  In reality, sometimes we make it bigger than it really is. The change itself may be huge, but maybe the result or the outcome isn't that different for you in particular, maybe it doesn't affect you on a daily basis.
+2. What will remain the same?  That's a great thing to focus on, especially if change is difficult for you and you find yourself falling into the fixed mindset around change. Think about what's going to be the same.
+3. Who is going to be affected and in what way? This change might not affect everyone equally, it might not affect everyone at all.
+
+##### Growth Mindset Change Qualities
+
+Growth Mindset people not only deal well with change, but welcome and thrive on it. Here are the qualities of people who embrace change. Try to focus on these qualities and foster them in yourself and your co-workers.
+
+* **Confidence:** Self-confidence is always a winning quality. Its value is never more evident when welcoming change at the workplace.
+  * Focus on strengths, not weaknesses to keep your confidence up.
+* **Loving a Challenge:** Those who love challenges often look forward to exciting changes at work.
+  * Emphasize optimism. Focus on opportunities that come with change, not the natural uncertainty and potential negatives. These opportunities typically include the ability to grow, gain knowledge, overcome challenges and earn recognition.
+* **Adaptability:** Those who are adaptable deal well with changes. They resist becoming overwhelmed or discouraged. These people simply “go with the flow.”
+  * Keep your sense of humor and levity. People can cope with change much easier when the mood is lighter.
+* **Good Work-Life Balance:** Most people that have a sense of balance in their lives, between the personal and professional, adapt well to change. It seems that those employees that have other interests, beyond the workplace, deal with change much better than those who are “married” to their jobs.
+  * Try to have other, meaningful life experiences. Foster a real life, hobby, pastime or other interests.
+* **Creativity:** Employees who are naturally curious tend to embrace change as a new adventure in gaining knowledge and fueling their inherent creativity.
+  * Nurture your creativity and innovation, and that of your co-workers.
+* **Love of Collaboration:** Those who like collaborating with a team to achieve solutions often thrive on change.
+  * Take the time to sharpen your collaborative skills.
+
+**Self-Reflection:** Can you think of someone in your organization that embodies one of these change qualities and tap into them as a resource or mentor?
+
+##### Change Exercise (Suggested Activity)
+
+Change Exercise – Choose Your Own Change Activity. Select one. Or if you want to practice a Growth Mindset, do all 3!
+
+1. Take a moment to review the 6 Growth Mindset Change Qualities (in the previous reading) and think about which ones you’re already strong at, and which ones you need to develop a stronger strategy for or build a team of people who possess the skills you’re lacking
+
+2. Think of something that you’ve always wanted to try, but were afraid you wouldn’t be good at it or excel. Make a plan to try it with a Growth Mindset. Think about the learning, challenge, confronting obstacles. Think about the effort as a positive, constructive force, not as a drag. Share what your stretch exercise is with your peers and ask for input.
+
+3. Think of a change that is happening now at work, that is about to happen, or could happen in the near future. Consider how you will handle that change using the strategies we covered. Choose a partner and share what the change is, and how you plan to incorporate Growth Mindset techniques. Be creative, but specific. Share your intentions with a colleague or friend, and put them in writing.
