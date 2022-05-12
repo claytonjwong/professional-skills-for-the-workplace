@@ -1197,3 +1197,210 @@ Change Exercise – Choose Your Own Change Activity. Select one. Or if you want 
 2. Think of something that you’ve always wanted to try, but were afraid you wouldn’t be good at it or excel. Make a plan to try it with a Growth Mindset. Think about the learning, challenge, confronting obstacles. Think about the effort as a positive, constructive force, not as a drag. Share what your stretch exercise is with your peers and ask for input.
 
 3. Think of a change that is happening now at work, that is about to happen, or could happen in the near future. Consider how you will handle that change using the strategies we covered. Choose a partner and share what the change is, and how you plan to incorporate Growth Mindset techniques. Be creative, but specific. Share your intentions with a colleague or friend, and put them in writing.
+
+### Week 4: Dealing with Setbacks and Failures
+
+In this module, you will be able to overcome the perfectionist syndrome. You will be able to identify how your mindset will show up. You will be able to practice the five-minute pity party and apply a growth mindset to move forward. You will be able to reframe a situation and make it redemptive. You will be able to apply best practices to giving and receiving feedback and be able to identify that there is a balance to practicing a mindset.
+
+#### Perfectionist Syndrome
+
+In order to overcome the Perfectionist Syndrome, you need to think progress, not perfection.  Are you able to ask of yourself and others for full commitment and for full effort as opposed to mistake free actions? I want you to really think about that. Because that means that not only can you cut yourself a lot of slack if you make a mistake, and just ask yourself, did I give full commitment and did I give full effort? Am I willing to learn from the mistakes and setbacks and grow from them? But you also need to do that for other people and give them some room for mistakes and for growth also.
+
+In a fixed mindset, when someone has a setback or failure, they view it as a very permanent state and a reflection on their overall abilities and talents. They also do not like to focus on effort because when they make a mistake, they look at it as deficiencies and deficiencies in the mind of a fixed mindset person have no place.  A fixed mindset individual, the failure is such a negative statement that they will torment themselves over it and ruminate over it. They will often try to blame others. They go into that comparison trap syndrome that we talked about in module 2. When they get into that comparison syndrome, instead of trying to learn from their mistakes and setbacks and grow, they look to others to blame them. They often sometimes go as far as cheating.  This type of fixed mindset in the area of setback and failure, can really be a problem and can hinder overall team dynamics, and can hinder relationship-building, and can definitely hinder your growth in your career.
+
+Whereas a growth mindset person will handle setbacks and failures a lot more easily because they leave room for course correcting, for tweaking, for dealing with errors. They also leave a lot of room for learning.
+
+#### The 5-minute Pity Party
+
+> You aren't a failure until you start to blame.  You can stil be in the process of learning from your mistakes until you start to deny them.
+>
+-[John Wooden](https://en.wikipedia.org/wiki/John_Wooden)
+
+> If we operate from a fixed mindset, that we view failure as defining us instead of viewing it as a temporary situation that can be used as a stepping stone to future success.
+>
+-Christopher Bergland
+
+The 5-minute pity party gives you the permission to vent and complain about your failure. Then at the end of the 5-minute pity party, and yes, I'm going to ask you to time it, then you talk about or think about or plan for how you're going to move into a growth mindset to deal with that same setback or failure that you've just been ruminating over for five minutes.  At the end of the five minutes you need to think about what am I going to do about this? How am I going to reframe this? What actions might I take?
+
+Time yourself for five minutes thinking about something that you know that you have a fixed mindset about, and then I'm going to ask you to think about the following questions: What happened during those five minutes? What did you do? Where were you? What did it feel like? How did it feel during those five minutes? What are your action steps to move to a growth mindset about the issue that you're pity partying over?
+
+#### Redemptive Story Reframe Exercise
+
+I'd like you to use a three-part exercise. Part 1; think of something from the past that you think measured you or defined you in some way that most people would consider a setback or failure. Here are some examples. A poor test score, not getting into a college or graduate school program, being passed up for promotion, a big mistake that you made at work that you really think affected one of your assignments or affected the trust level that your supervisor had about to you or even being fired from a job. So that could be the setback or failure that you use. Think of an example of one and let's make it about your career. Part 2, put yourself into the growth mindset, look honestly at your role that you played in this set back or failure. But understand that it does not define you, it does not define your intelligence, your personality or your overall career. Step 3. Now, staying in that growth mindset, ask yourself what you learned from that experience and how can you use that experience as a learning basis for future growth. That's the redemption part we're going to redeem this past setback and reframe it using a growth mindset so that we can learn from it
+
+#### Giving and Receiving Feedback
+
+In a fixed mindset, both positive and negative labels can really mess with your head. For example, if someone at work, let's say your supervisor, refers to as the superstar on the team or the best speaker or my best salesperson. That actually is something that you feel you have to constantly live up to. You're afraid of losing that label. Let's  say that you're referred to with something more negative. "She's my slow salesperson, she closes deals, but it takes her forever or he doesn't like to speak up at meetings, he is so quiet, and they say it in a negative way." The problem with those negative labels, if you're a fixed mindset person is you feel you deserve it and that there's no way to overcome that. It's insurmountable. The fixed mindset puts you in a really difficult position when it comes to feedback because you're paying a lot of attention to those labels.
+
+If you have a growth mindset around how to handle feedback, and let's say for example, labels or stereotypes, whether they come from your supervisor or someone else, you can handle them a lot more easily and gracefully. The reason is that you don't think they define you. They're not an overarching way of defining your abilities and your talents, and your ability to grow because you constantly think, well, "I can work harder, I can seek help and I can improve," and so using a growth mindset to take in feedback and take in criticism and take in labels, for example, is a great way to reframe those types of experiences.
+
+Let's talk about a difficult situation now. What if you have a supervisor that has a fixed mindset about your work? What if you have a supervisor that has a fixed mindset about your actual abilities, they have a snapshot in time and they always see you that way, and therefore, they're not even seeing your improvement in your performance over time. It's difficult but you have to actually have a growth mindset in the way that you handle their fixed mindset. You have to try to respond to that with a growth mindset to help you see that someone else's view of you is not the be-all end-all, and it should not define you and take away your confidence. With that type of growth mindset, you're better equipped to confront the feedback as temporary and to keep your confidence, and your abilities in tact.
+
+##### Giving and Receiving Feedback: Best Practices
+
+1. The definition of constructive criticism itself needs to be broken down and redefined. It is not an invitation to personally attack someone. Basically, constructive criticism is a way to praise or critique the efforts, strategies and solutions, not the person, him or herself, so any feedback should be initiated by ensuring that the purpose behind it is to seek improvement and not to reprimand or rebuke someone else. That helps employees, whether it's you or someone else, come to this constructive feedback conversation in a way that's not defensive and very open to feedback. That's how you foster a growth mindset from the beginning of the conversation. Make sure that you're looking at the performance, let's say the outcomes, the achievements and the traits, and not the person, him or herself. It's very difficult but it's a really important thing to do is to reframe constructive criticism itself, not about the person, but about the assignment, the task at hand.
+
+2. Really look at the language that you use, either in your writing or the language that you speak. Make sure that it is done in a way to actually incite a positive outcome and growth mindset. How is the feedback conveyed?
+
+##### Reframe Example Exercise
+
+In this lesson, we will continue talking about receiving feedback with a growth mindset. We're going to go back to our personas and this time we are just going to focus on Thomas. I'm going to give you a little scenario where Thomas receives an assignment back from his supervisor, and he's going to approach the feedback with a fixed mindset. Then I'm going to ask you to reframe his response to it using a growth mindset. Let's first have Thomas explain what's going on. But again, remember he's in a fixed mindset. ''My boss gave me back an assignment and it had revisions written all over it. I was so disappointed. I felt like such a failure. I tried to avoid our one-on-one meeting later that day because I didn't want to face her. I was trying to make up an excuse to not attend. I feel like a loser, and I should have really nailed that assignment." What I want you to do now is reframe this for Thomas using the growth mindset.
+
+Your exercise was to try to rephrase and reframe the way that Thomas responded to the feedback from his supervisor when he got back the assignment that he felt that he had been a failure around. What does that look like? I'm hoping that you came up with some great examples and there are lots of correct answers. But here's one, "My supervisor gave me back an assignment that I worked really hard on and she actually took the time to make comments on it and then invited me to talk about it in a one-on-one with her so that I could better understand her feedback. I went to that one-on-one and I used it as an opportunity to ask a lot of questions and I took a lot of notes. I can now see how I can improve on that type of assignment in the future. I asked her if she would give me a similar assignment soon, so I can apply what I've learned." What a difference. That is the growth mindset in action when receiving feedback. Now, to be fair, remember in the last lesson we talked about how if your supervisor has a fixed mindset about your abilities, it's often difficult to reframe the feedback, but you control your response to the feedback. Always try to put yourself in a growth mindset when receiving feedback and you'll be able to handle it a lot better and define it as a temporary setback for failure that you can learn from.
+
+##### Self-Reflection Activity
+
+* Do you feel you need to prove yourself in the workplace, to be the best, be a “success”, and that gets in the way of your helping others?
+* Do you often take credit for wins and not give attribution to the team?
+* Do you ever try to hold back high-performing employees because they threaten you?
+* Do you have a fixed mindset about a particular colleague?
+* Are there ways I could be less defensive about my mistakes?
+* Could I profit more from the feedback I get?
+* Are there ways I can create more learning experiences for myself?
+
+##### Reality Check of Growth Mindset
+
+One thing to remember, and a good example of a growth mindset is to be sensitive to others. You don't want to seem to be saying to someone that is directly or indirectly impacted, "just have a growth mindset." Remember, going back to module 2, we don't want to confuse growth mindset with expecting someone to handle extraordinary circumstances and always in a positive way. But ask yourself, "what can we learn from these situations that would be useful in the future?"
+
+A growth mindset can be extremely helpful during times of stress or change. But remember that there is sometimes a reality check situation when the balancing act maybe a little more difficult. When those situations come up, be aware of them and cut yourself some slack. That as much as you're trying to do a mindset shift, this may not be the perfect time to expect that of yourself.
+
+#### Mindset Summary
+
+The growth mindset is ongoing. Remember it's always changing.
+
+1. Change your mindset about mindsets. Which means that be careful that you're not falling into the trap of thinking that fixed mindset is so negative and so bad that you can never admit when you're in it. We have to all recognize that we are a combination of fixed mindset and growth mindset around lots of different areas. Remember, I want you to think of this holistically. You may have a fixed mindset around one ability but not another. You may have a fixed mindset around one relationship but not another. Your fixed mindset may arise more in certain settings than others, and just be careful that you're not so judgmental of yourself that you won't even admit when you're in a fixed mindset. Because recognition of when you're in a fixed mindset helps you shift to a growth mindset.
+
+2. remember that mindsets are not permanent. You can change yours even in areas where you fall into a fixed mindset, does it take work and practice? Yes, and you now have a lot of strategies to help you do that. Remember that you can change, which is great. Really hopeful. Remember to remind yourself that you are a human being and you're a work in progress.
+
+3. You want to catch yourself when you're slipping into the fixed mindset persona, and you may need to again, talk to your fixed mindset persona. It thinks it's protecting you when what it's really doing is limiting you. You may need to actually have a little conversation with this fixed mindset side of yourself and remind yourself, we need to move to a growth mindset because this is not helping us. You're going to have to educate that fixed mindset persona here and there.
+
+4. Learn your triggers. There are some things that will be common triggers for you and will put you more in fixed mindset personas than others. Let me give you a little bit of a list of those. One is when you fail. Another is when you keep hitting dead ends. Another one may be that comparison trap, rearing its ugly head. Either you become judgmental of others or you become very judgemental of yourself, and when you do that, either of those can put you very much in a fixed mindset. When you feel vulnerable, when you're stressed out, when you're anxious, and also when you're taking on maybe a big new project or a big deadline, or just a really tough challenge that you haven't experienced before. All of those can be common triggers, but think about what the triggers might be for you as you've been studying this fixed mindset persona. When does it tend to arise for you? What types of settings, with which types of relationships in people and under what types of circumstances?
+
+5. Growth mindset takes practice, and so use what you've learned in this course as you move forward. Keep thinking about writing out a script to reframe and rephrase statements. Keep thinking about role-playing and practicing. You may need a growth mindset buddy to help you through this. The more you can remember that growth mindset takes practice and that you are a work in progress. But that you can shift over to a growth mindset when you need to more and more hopefully in the future, then this will give you hope as you move forward.
+
+#### How to Develop a Growth Mindset in Your Career?
+
+* Don’t be afraid to take calculated risks.
+* Encourage employees to accept their limitations rather than hiding them.
+* Consider challenges as opportunities to improve themselves.
+* Try out a variety of approaches rather than taking the same approach to every situation.
+* Don’t wait to get approval for your ideas, rather make learning a priority.
+* Enjoy the process of learning instead of anxiously waiting to enjoy the end result.
+* Celebrate small wins with other teammates and be a part of their wins as well.
+* Be patient while learning as opposed to rushing through the learning process.
+* Make sure efforts are acknowledged and not just the end results.
+* Ingrain in your work culture that ‘high achiever’ means someone who leverages hard work as well as their skills.
+* Do not view constructive criticism in a negative manner but use it positively to overcome your limitations.
+* Focus on progress, not perfection.
+* Make regular learning a part of your routine and stick to it.
+* Understand that your brain requires regular exercise like your muscles to stay fit and coherent.
+* Value determination and perseverance over street-smart and shortcuts.
+* Embrace your own mistakes, and learn from your teammates mistakes as well to avoid repeating those mistakes.
+* Raise the bar once you reach your goals as there is always room for higher achievement.
+
+# Course 4: Adaptability and Resiliency
+
+**Real improvement is about practice, continuous review, and development.**
+
+Remember, it's also important to realize that this program can only take you so far. You'll also need to be motivated and open to learning. Be prepared to genuinely reflect, try new things, and to challenge yourself.
+
+**Adaptability and resiliency give us:**
+
+* Ability to access an evolving situation from multiple perspectives
+* Shift thinking and viewpoint
+* Choose the best response
+
+## Week 1: Laying a Foundation
+
+**How important is adapability?**
+
+In our VUCA world, adaptability is everything.
+
+VUCA = **V**olatile **U**ncertain **C**omplex **A**mbiguous
+
+> To survive in today’s constantly changing business landscape requires being comfortable in uncertainty. Adaptability is what allows people and businesses to solve problems, overcome challenges and move back from the edge of attrition to the more stable ground of relevance. Adaptability is everything.
+>
+-Jeff Boss, Forbes
+
+### Learning Goals
+
+* Identify attitudes and behaviors of adaptable and resilient people.
+* Understand the importance of both traits in today’s organizations.
+
+### Adaptability
+
+**Able to change:**
+
+* Actions
+* Course
+* Approach
+
+This implies a sense of personal choice or purposefully navigating rather than being driven by changing circumstances.
+
+**We have 2 choices:**
+
+1. We have the ability to change our situation
+2. We are at the mercy of situations in which we find ourselves
+
+**What does adaptability look like?**
+
+* Willingness to learn new ways of thinking
+* Being curious and open-minded
+* Attending a meeting you don't want to be in and using active listening skills to learn
+* Being alert to positive aspects of change
+* Focused and energetic when learning new processes or techniques
+* Saying "yes" to the new project that will stretch your skills
+* Being self-reliant, able to initiate, improvising where needed
+* Being flexible to approach tasks
+* Being able to multitask
+* Being tolerant of tight deadlines
+* Ability to bounce back from setbacks and unexpected obstacles
+* Being able to learn from experience and do things differently the next time if need be
+
+😟 Without adapting to change, a leader's effectiveness is both limited and limiting because inflexibility not only precludes one's personal growth, but also precludes the growth of one's followers.
+
+#### Adapters
+
+* Flourish amidst chaos while inflexible, non-adapters flounder
+* Find openings in situations where others only see closure
+
+### Resilience
+
+Capacity to recover quickly from difficulties and ability to bounce forward with new insight and learning.
+
+* Grit
+* Staying power
+* Persistence
+* Digging deeper to find inner reserves of strength during times of challenge, change, or stress
+
+### Characteristics of Adaptability and Resilience
+
+* self-awareness
+* self-management
+* strong connections
+* practicing a positive attitude
+
+### Ripple Effect
+
+How you choose to show up and engage with others has an effect on your colleagues, your friends, your family, your community, and your organization.
+
+### Top Qualities for New Hires
+
+1. Understand their own path
+* Can you tell your story?
+* Can you talk about your path going forward?  What are your goals?
+
+2. Know what they want in their career
+* Self-directed
+* Know what they want and are willing to work for it
+  * You have a reason
+  * You have goals
+  * Willing to pay more attention to the work (compared to others just working a job for a paycheck)
+
+#### How Employers Rate Adaptability
+
+![](adaptability_employer_ranking.png)
+
+### Adaptability and Resilience Assessment
+
+![](adapability_quiz.png)
