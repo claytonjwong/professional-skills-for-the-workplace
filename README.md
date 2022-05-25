@@ -1404,3 +1404,36 @@ How you choose to show up and engage with others has an effect on your colleague
 ### Adaptability and Resilience Assessment
 
 ![](adapability_quiz.png)
+
+## Week 2: Introduction to Self-Awareness
+
+### What is Self-Awareness?
+
+The ability to see yourself clearly and objectively through reflection and introspection.
+
+Conscious knowledge of your own:
+* Character
+* Feelings
+* Motives
+* Desires
+
+The foundation of self-control is formed by holding ourselves accountable to our own standards.
+
+### Think About
+
+* Clarify your personal values and beliefs
+* Understand both your strengths and blind spots
+* Identify triggers that evoke negative thoughts and feelings
+* Modify any negative self-talk
+* Develop behavioral strategies when faced with setbacks
+* Improve your ability to convert failure to learning
+* Become more proactive
+* See things from the perspective of others
+* Understand people better and improve your relationships
+* Practice self-control
+* Make better decisions
+* Become more creative and productive
+
+### How to My Expectations Align with my Employeer's Expectations?
+
+⭐️ In a **VUCA** world, disruption and innovation are everyday realities.  Key to staying relevant is your ability to analyze evolving needs and stakeholder expectations.
