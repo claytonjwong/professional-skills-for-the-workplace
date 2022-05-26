@@ -1437,3 +1437,5 @@ The foundation of self-control is formed by holding ourselves accountable to our
 ### How to My Expectations Align with my Employeer's Expectations?
 
 ⭐️ In a **VUCA** world, disruption and innovation are everyday realities.  Key to staying relevant is your ability to analyze evolving needs and stakeholder expectations.
+
+![](adapt_trans_changes.png)
