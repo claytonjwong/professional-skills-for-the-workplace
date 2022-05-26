@@ -1439,3 +1439,48 @@ The foundation of self-control is formed by holding ourselves accountable to our
 ⭐️ In a **VUCA** world, disruption and innovation are everyday realities.  Key to staying relevant is your ability to analyze evolving needs and stakeholder expectations.
 
 ![](adapt_trans_changes.png)
+
+### Discovering Ourselves and Our Standards
+
+#### Reflect upon the assessment from last week:
+
+* How would you evaluate your ability to adapt to your org changes?
+* How adaptable are you?
+* Can you remember adapting comfortably to many challenging situations?
+* When have you found it difficult to adapt to changing situations?
+* When have you learned a new process?
+* How have you redesigned a product or a service?
+* How have you worked with a new team?
+* How have you handled changing to a new intranet, shifting to virtual meetings, or sharing ownership of a product?
+
+#### Think about:
+
+* What are your personal and professional values?
+* What are your standards and your expectations for yourself?
+* How do you tend to value yourself?
+
+#### Outcomes:
+
+1. We pass or find alignment between ourselves and our standards
+2. We fail and find discrepancy between ourselves and our standards
+
+#### Gaps Between Our Outcomes:
+
+We can choose to:
+
+1. work towards reducing the discrepancy
+2. avoid it entirely
+
+#### Self-Awareness
+
+If we believe there's a little chance of closing the gap, we tend to avoid the issue. But if we're optimistic and believe we likely can improve our alignment with our standards of correctness, we'll take action. Our actions may also depend on how much time and effort we believe realignment will take. The larger the perceived gap between our responses in our standards, and the slower the progress will likely be, the less likely we are to take on realignment efforts.
+
+What many people don't realize is that you can learn to recognize situations that trigger a threat response, and you can learn to manage your thoughts and feelings about that situation. Controlling your inner responses will greatly increase your ability to adapt and grow from the new experience.
+
+#### SCARF Model
+
+1. **S**tatus: your sense of relative importance to others, often associated with being the expert.
+2. **C**ertainty: your ability to predict the future. People don't like uncertainty. We expect our performance to result in success.
+3. **A**utonomy: your sense of control over events. Being autonomous in your daily work is a necessary factor in job satisfaction.
+4. **R**elatedness: your sense of safety with others and belonging. A lack of relatedness can leave us feeling isolated and lonely.
+5. **F**airness: your perception of fair exchange between people. Unfairness will more likely occur where there is lack of rules, expectations, or objectives.
