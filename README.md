@@ -1484,3 +1484,7 @@ What many people don't realize is that you can learn to recognize situations tha
 3. **A**utonomy: your sense of control over events. Being autonomous in your daily work is a necessary factor in job satisfaction.
 4. **R**elatedness: your sense of safety with others and belonging. A lack of relatedness can leave us feeling isolated and lonely.
 5. **F**airness: your perception of fair exchange between people. Unfairness will more likely occur where there is lack of rules, expectations, or objectives.
+
+#### Values Exercise
+
+* [Living During Challenging Times](ValuedLivingDuringChallengingTimes.pdf)
