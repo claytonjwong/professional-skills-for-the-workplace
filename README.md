@@ -1621,3 +1621,15 @@ down what’s on your mind. If you’ve never kept a journal before, writing dow
 your thoughts and feelings may seem awkward at first; it just takes some time
 and commitment to make journaling into a positive habit that can help provide
 you with valuable feedback.
+
+### Resilience Assessment Questionnaire
+
+[Resilience Assessment](resilience_assessment.pdf)
+
+* How did you score?
+  * 2022-06-07: **105**
+* Are you suprised by your score?
+  * Yes
+* What strategies can you employ to become more resilient?
+  * I can improve my emotional intelligence, social intelligence, and self-awareness in each moment to improve my overall resilience on a daily basis
+  * I can re-take and track the resilience assessment scores to see historical objective measurements
