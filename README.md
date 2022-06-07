@@ -1597,3 +1597,14 @@ Consider these five steps to achieving self-awareness.
 Self-awareness is having a competent and accurate answer to the question: **"What am I like?"**
 
 Evidence shows that good self-knowledge is key when building resilience. Follow our five steps to improve your self-awareness and resilience. Use your self-knowledge to manage your reactions and behaviors. Look after your mind, body, and spirit and keep at it. **The quest for self-awareness is never ending.**
+
+### Receiving Feedback
+* Listen carefully
+* Try not to get defensive
+* Check your perceptions -- paraphrase
+* Ask questions for clarification; ask for examples, paraphrase again
+* Evaluate the accuracy and potential value of what you heard
+* Gather additional information from additional sources and/or observe your own behavior
+* Do no overract but do modify behavior when appropriate
+
+**Remember - feedback received is about past behavior, NOT current or future behavior.  Open minds offer the possibility of learning something valuable.**
