@@ -1538,3 +1538,55 @@ Read Mindful Script (Eye of the Hurricane), it might even benefit you to have so
 * How do you feel now?
 * Did you resonate with the metaphor of the eye of the hurricane? If not, can you think of another metaphor that would resonate with you more?
 * Sometimes during meditation, issues that have been suppressed for some time begin to rise to the surface. Where there things that you noticed that you may have repressed in the past? If so, what kind of experiences did you notice? What was it like to notice them? How did you deal with them?
+
+### Steps to Achieving Self-Awareness
+
+Consider these five steps to achieving self-awareness.
+
+#### 1. take time to reflect on your life
+* How have your life events and background shaped your beliefs, values, thoughts, and behaviors?
+* Who has had the greatest impact on you, both positively and negatively?
+* What experiences have brought you the most joy and fulfillment?
+* How have you managed setbacks?
+
+#### 2. seek feedback
+
+ * From family, friends, and co-workers
+ * Identify normal opportunities for getting feedback
+
+#### 3. psychometric test
+
+* Myers-Briggs
+* Clifton Strengths
+* DISC Theory Profile
+
+#### 4. journaling
+
+* Increases your insights into yourself in situations
+* Allows you to articulate your feelings
+* Allows you to celebrate your progress
+
+#### 5. resiliency assessment
+
+### Barriers to Self-Esteem
+
+* Lack of mindfulness
+* Cognitive bias
+* Willingness to seek feedback
+* Confirmation bias
+* Remembering self vs. experiencing self
+
+### Why Self-Awareness?
+
+* Truly understand your thoughts and emotions
+* Know your strengths and weaknessses
+* Adapt your thoughts
+* Manage your behaviors
+* Identify triggers that threaten your resilience
+* Greater self-awareness brings greater self-confidence
+
+#### What am I like?
+
+Self-awareness is having a competent and accurate answer to the question: **"What am I like?"**
+
+Evidence shows that good self-knowledge is key when building resilience. Follow our five steps to improve your self-awareness and resilience. Use your self-knowledge to manage your reactions and behaviors. Look after your mind, body, and spirit and keep at it. **The quest for self-awareness is never ending.**
