@@ -1488,3 +1488,25 @@ What many people don't realize is that you can learn to recognize situations tha
 #### Values Exercise
 
 * [Living During Challenging Times](ValuedLivingDuringChallengingTimes.pdf)
+
+### The TRIAD
+
+![](triad.png)
+
+How do you get into alignment? How can self-awareness help you close the gap? Well, it all begins with you. Given the many factors at play in adaptability, and resilience, the most important is your internal dialogue; what you are telling yourself about each situation. Even SCARF social threat responses are subordinate to your inner voice. What you focus on creates the dialogue which triggers physiological responses, which in turn prompt more dialogue and actions. A situation initially might be neutral. What it becomes, often in seconds, is the reality that you create. You determine what your experience will be based on the TRIAD:
+
+1. Physiology
+2. Focus
+3. Language
+
+#### Physiology
+
+Physiology refers to your body and all its systems, and by extension, elements that directly impact those systems. Physiology dictates your feelings. How you use your body affects how you feel mentally and emotionally. If you want to master your feelings, you must be aware of how your feelings and your body are interconnected. If you stand up straight, you feel more proud and alert. If you slump over and neglect your body, you're more likely to feel negatively. The next time you find yourself in a bad mood, stand up, breathe deeply, and put a smile on your face. You have the power to reset your mind and mood. This physiological concept also includes taking care of yourself. You know intuitively that you feel your best when you get enough sleep, when you nourish your body with quality foods and nutrients. Even though it can be tempting to skimp on these basic things, don't take that shortcut. Give yourself enough sleep to keep your mind clean and clear, and take the time to eat foods that make you feel full, nurtured, and healthy.
+
+#### Focus
+
+Where focus goes, energy flows.  What you put your focus on is where you set your intention. Focus on the things you want and are working towards instead of the things that are holding you back. Setting your focus on the positives is one of the most essential steps towards achieving adaptability and resilience. If you feel your focus wavering or needing a little refreshment, consider clearing your mind. Exercise can help you release stress and center your focus. If you don't have time to hit the gym or go for a run, consider doing a short meditation to refresh your focus. Meditate each morning. By the way, you can meditate anywhere, even at your desk at work. In addition to the obvious health benefits, you'll find it easier to direct your focus.
+
+#### Language
+
+You speak to yourself internally and out loud. How you talk to yourself determines how you operate in the world. If you ask questions like, why do bad things always happen to me instead of what can I do to better my situation? You are more likely to feel powerless in your own life. How you use language determines what emotions you feel, so choose wisely when you speak to yourself and to others. In order to keep yourself thinking positively and focused on the future and possibilities, keep track of your positive and negative words. Every time you find yourself saying a word that takes your focus in the negative direction, replace that word with a new positive one. If you're struggling to catch your own negative words, enlist the help of friends, family, and even co-workers. Once you begin to alter your spoken word patterns and funnel them into a more positive frame, you'll more easily be able to alter your internal speech to yourself. By changing your language you can change your focus and achieve more adaptability and resilience.
