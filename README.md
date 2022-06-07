@@ -1611,3 +1611,13 @@ Evidence shows that good self-knowledge is key when building resilience. Follow 
 * Do no overract but do modify behavior when appropriate
 
 **Remember - feedback received is about past behavior, NOT current or future behavior.  Open minds offer the possibility of learning something valuable.**
+
+### Journaling
+
+[Journaling Tips](journaling.pdf)
+
+Writing in a journal is an opportunity to pause at some point in the day to write
+down what’s on your mind. If you’ve never kept a journal before, writing down
+your thoughts and feelings may seem awkward at first; it just takes some time
+and commitment to make journaling into a positive habit that can help provide
+you with valuable feedback.
