@@ -1510,3 +1510,31 @@ Where focus goes, energy flows.  What you put your focus on is where you set you
 #### Language
 
 You speak to yourself internally and out loud. How you talk to yourself determines how you operate in the world. If you ask questions like, why do bad things always happen to me instead of what can I do to better my situation? You are more likely to feel powerless in your own life. How you use language determines what emotions you feel, so choose wisely when you speak to yourself and to others. In order to keep yourself thinking positively and focused on the future and possibilities, keep track of your positive and negative words. Every time you find yourself saying a word that takes your focus in the negative direction, replace that word with a new positive one. If you're struggling to catch your own negative words, enlist the help of friends, family, and even co-workers. Once you begin to alter your spoken word patterns and funnel them into a more positive frame, you'll more easily be able to alter your internal speech to yourself. By changing your language you can change your focus and achieve more adaptability and resilience.
+
+### The Eye of the Hurricane Meditation
+
+Read Mindful Script (Eye of the Hurricane), it might even benefit you to have someone read this slowly aloud so you are able to close your eyes.
+
+* Find a comfortable meditation position, either sitting on a cushion on the floor, or on a chair. Sit tall with your back straight, but shoulders relaxed. And let your hands rest in your lap, and gently close your eyes.
+* Let’s take three deep, slow breaths to begin.
+* Become aware of your body, sitting here. Notice the sense of contact between your body and the seat beneath you... notice your feet on the floor... notice your clothes against your skin.
+* Now let’s consider a metaphor. Within the strong, turbulent winds of a hurricane, the eye, the center of the hurricane, is quiet. There is no wind and no movement there. For a moment, picture this idea in your mind. Can you visualize the strong, turbulent winds of a hurricane, and the inner core that is peaceful and quiet?
+* Let’s see if you can become like the center of the hurricane. Your current circumstances, your thoughts, your feelings, and the sensations throughout your body, can be compared to the winds of a hurricane. Is it possible for you to let go of all of these things for a moment, so that you are no longer taking part in them... like the center of the hurricane is not taking part in the turbulent surrounding winds.
+* To do this, start by focusing on your breath. Simply breathe in and breathe out. Focus inward.
+* Just like the eye is deep within the hurricane, your eye is deep within you. Use your breath to connect to this part of you. Simply breathe in and breathe out.
+* Stay connected to your breath. If anything stressful happens in this moment, such as negative thoughts, unpleasant feelings, annoying sounds, difficult life events, memories... try to look at them as if they are the turbulent wind of the hurricane; whirling around, continually changing, unpredictable in nature...
+* Notice that you are not them. You are the silent center of the hurricane, the part that is peaceful, despite what is happening around you.
+* You are the silent center of the hurricane, peaceful and at ease.
+* You are not reacting, you are simply observing. Like the wind of the hurricane, these experiences are constantly moving and changing. You, on the other hand, are stable. You are not moving or being carried away by them.
+* As you are breathing, notice how you move more and more towards the center of the hurricane, towards the eye. Just like the turbulent wind of the hurricane, your thoughts, your feelings and whatever is happening outside yourself is still going on, but you are no longer part of it. You are in a safe, peaceful place... Breathing in, breathing out.
+* As you sit here, connected to your eye, notice whatever arises. Notice the wind of the hurricane, but do not participate. Stay in the eye. Notice thoughts... notice feelings... notice sensations... continue to watch the ever-changing nature of the world inside and outside you. Watch from a distance, with curiosity, and without judgment... without reacting to what you see.
+* No matter how intense or bad the hurricane gets, the eye is always centered, calm and at ease. Even the most turbulent hurricane cannot hurt or harm the eye; the eye is safe. Whenever you feel you need to restore your inner peace, use your breath to connect to this silent part of yourself. Just breathe in and breathe out. It may help to visualize the hurricane, with yourself in the center.
+* It can be difficult to see the eye of the hurricane at times, and sometimes we forget the eye is there... however, it is always there. If we examine closely enough—even the strongest, darkest hurricane— sooner or later we’ll see the eye, centered and constant.
+* Now, when you feel ready, slowly open your eyes.
+
+**Reflection**
+
+* What was it like to connect to the observing self?
+* How do you feel now?
+* Did you resonate with the metaphor of the eye of the hurricane? If not, can you think of another metaphor that would resonate with you more?
+* Sometimes during meditation, issues that have been suppressed for some time begin to rise to the surface. Where there things that you noticed that you may have repressed in the past? If so, what kind of experiences did you notice? What was it like to notice them? How did you deal with them?
