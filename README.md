@@ -1553,6 +1553,13 @@ Consider these five steps to achieving self-awareness.
 
  * From family, friends, and co-workers
  * Identify normal opportunities for getting feedback
+   * Project Completion
+   * Presentations
+ * Consider formal feedback as a gift
+ * Questions to ask:
+   * What are my 3 key strengths?
+   * What do I do well?
+   * What can I improve?
 
 #### 3. psychometric test
 
