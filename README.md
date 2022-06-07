@@ -1599,6 +1599,9 @@ Self-awareness is having a competent and accurate answer to the question: **"Wha
 Evidence shows that good self-knowledge is key when building resilience. Follow our five steps to improve your self-awareness and resilience. Use your self-knowledge to manage your reactions and behaviors. Look after your mind, body, and spirit and keep at it. **The quest for self-awareness is never ending.**
 
 ### Receiving Feedback
+
+[Accessing your Current Feedback Skills](feedback_assessment.pdf)
+
 * Listen carefully
 * Try not to get defensive
 * Check your perceptions -- paraphrase
