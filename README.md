@@ -1633,3 +1633,11 @@ you with valuable feedback.
 * What strategies can you employ to become more resilient?
   * I can improve my emotional intelligence, social intelligence, and self-awareness in each moment to improve my overall resilience on a daily basis
   * I can re-take and track the resilience assessment scores to see historical objective measurements
+
+## Week 3: Introduction to Action Planning
+
+Whatever you want to improve in yourself, you can face the task with greater confidence, if you create an action plan. In fact planning can help you thrive in what might seem like the eye of a hurricane of change. Having an action plan can allow you to manage your feelings and behaviors, use your time and effort more efficiently, use mistakes as learning experiences, and manage your progress.
+
+Creating and following an action plan can help you avoid some of these common obstacles. Feeling like a victim, blaming others, avoiding responsibility, becoming overly stressed and anxious. Is planning in a VUCA world even possible?
+
+In the past, your organization probably developed strategic plans for the next three to five years. Today, experts recommend that those plans be updated every few months. How do you create a plan when your situation might change next week? The key is to remember that creating an action plan is not about controlling events or others, but about taking responsibility for your own attitudes and behaviors towards events and other people. Planning is a conscious choice to view things in a way that places you in a position of control over how you respond to feelings and purposely act rather than impulsively react.
