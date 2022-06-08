@@ -1641,3 +1641,39 @@ Whatever you want to improve in yourself, you can face the task with greater con
 Creating and following an action plan can help you avoid some of these common obstacles. Feeling like a victim, blaming others, avoiding responsibility, becoming overly stressed and anxious. Is planning in a VUCA world even possible?
 
 In the past, your organization probably developed strategic plans for the next three to five years. Today, experts recommend that those plans be updated every few months. How do you create a plan when your situation might change next week? The key is to remember that creating an action plan is not about controlling events or others, but about taking responsibility for your own attitudes and behaviors towards events and other people. Planning is a conscious choice to view things in a way that places you in a position of control over how you respond to feelings and purposely act rather than impulsively react.
+
+### Control, Influence, Accept (CIA)
+
+![](cia_1.png)
+![](cia_2.png)
+![](cia_3.png)
+
+#### Next Steps
+
+1. Consider the first two categories (the ones that do impact your work)
+2. List each situation, process, responsibility, and relationship
+3. Rank them from greatest to least impact on your work
+4. Focus on the top 10
+5. Place each element somewhere on a continuum from things I can control to things I can't control.  Somewhere in between those two ends is a zone of things you might have influence over.
+
+![](continuum.png)
+
+* What specific practices do I want to cultivate?
+* Choose 3-5 behaviors within your control
+  * Examples:
+    * Focus on adaptive behaviors
+      * Embrace learning opportunities
+      * Identify and focus on positive aspect of a process of change
+      * Say "yes" to a new project which will stretch your skills
+    * Focus on resilient behaviors
+      * Reframing setbacks as an opportunity for growth
+      * View a setback as temporary
+      * Explain how you are not a victim in a situation
+
+Redefine your motivation. Say you're asked to learn a new process that is outside your area of expertise, you'll be required to change the way you organize your workflow. Your initial feelings might be apprehension or resentment. Your motivation might be to avoid looking incompetent or to avoid failing. In that case, you would operate from a position of fear that stifles creativity. So what SCARF triggers do you recognize here? What threats might you recognize? Well, I see status and autonomy.
+
+Let's say you recently completed the CliftonStrengths Online Assessment and found that your passion for learning is one of your top five talents. You change your view of the new process as a thread of failure to an opportunity for learning. Your motivation shifts from avoiding failure to building what is already a strength. Your identity shifts from victim to fortunate receiver. You are in charge of yourself.
+
+Now let's move on to observe self and others. When you're looking at yourself, what are you really good at? What opportunities does your organization offer for new skill development? Let's just say a deadline has moved up. How did you respond? When you look at others, what skills do others demonstrate that you would like to master? Let's just say you volunteered to orient another team member. What happened to your supervisors mood as a result? Let's take a look at organization. Company directors often send out progress updates, newsletters, and notifications of opportunities opening up. Do you take time to read these communications? Apply The TRIAD to your thinking. During times of change in stress, how can you change or improve your physiology to take on this new challenge? What are you focused on? What do you need to focus on? How can you reframe your focus to a positive? What do you need to communicate with yourself and others? What positive language can you use? Plan flexible courses of action. In a vocal world that's volatile, uncertain, complex, and ambiguous, you can ground yourself by planning. Instead of seeing only one solution to a problem or only one outcome of an initiative, take the time to conceptualize several possibilities.
+
+When planning, set small goals that build a pattern of success. When you face a task that will likely take a lot of effort over an extended period of time, you can increase your resilience by breaking down what seems like a mountain of work into smaller, manageable steps. Remember the ripple effect. The greater our positive control of ourselves, the greater our potential to positively influence others.
