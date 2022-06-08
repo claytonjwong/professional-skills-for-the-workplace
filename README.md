@@ -1728,3 +1728,48 @@ Add visuals and sounds to make your plan more memorable and motivating.  Visuals
   * make it a working document that you focus on daily
 * celebrate your progress
 * have fun!
+
+## Week 4: Implementing Your Action Plan
+
+You chose several adaptive and resilient behaviors to cultivate. You have planned a flexible course of action, now it's time to implement your plan. As you go forward, you can increase your likelihood of success by using two strategies:
+
+1. Build strong interpersonal connections
+2. Maintaining a positive and optimistic attitude
+
+### Interpersonal Connections
+
+Nobody succeeds alone. The more you take time to develop genuine authentic relationships, the more you're going to be able to realize your dreams. You're going to be able to take big risks and know there's a network of people to cheer you on and support your efforts.
+
+Even in today's depersonalized virtual business environment, most transactions are about relationships. We do business with people we like and trust so it's important to invest time in making connections, building relationships and maintaining those connections over time. Being good at your job is not enough. Like it or not, life is not a meritocracy. The truth is that your skills, quality and experience are likely to go unnoticed unless you seek opportunities to communicate what you have to offer and your career aspirations. Well-connected people are in the know. The surest way to pick up a new opportunity whether it's a new client, new job or changes in your market is to be well-connected. By developing your networks, you not only stand a better chance of knowing what's going on, but you're also more likely to be remembered when one of those connections wants something that you offer. Networks are a valuable source of support. Networking is not just about finding opportunities and advancing your own interests. A good network is one that is based on give-and-take, trust and respect. There are people in your network you can ask for help when you're thinking through a new idea or dealing with a particularly difficult problem and then you will do the same for them in return. If you build your network in the right way, you'll be able to find that it's a valuable source of support and advice.
+
+#### Networking Benefits
+
+* Discover opportunities to raise your profile
+* Learn new skills and develop them
+* Find others who share your interests
+* Meet people with influence
+
+#### How do you build connections at work?
+
+Habits of effective networkers advocate for themselves. They raise their visibility, they take initiative, they follow up after the initial meeting, they maintain the connection, they offer support before asking for it, they show authenticity, they're interested versus interesting, they're vulnerable, they're generous and they show appreciation. Here are five ways to create stronger connections:
+
+1. write a thank you note
+2. welcome and new hire and ask them about their first day
+3. ask interesting and meaningful questions when you get outside the office
+4. answer questions with honesty (instead of defaulting to neutral, non-committal "good", share a bit more information about what's going on with you, what's happening)
+5. listening (this the best way to improve relationships)
+
+#### Good Listener's Checklist
+
+* Listen for key points
+* Pay attention and make eye contact
+* Remain calm and wait to ask
+* Minimize my judgements of the speaker's appearance (avoid finding fault)
+* Focus on the bigger picture (rather than nitpicking & wrong spotting)
+* Have an open mind and attitude
+* Minimize distractions
+* Body language is open, relaxed, and iniviting
+* Don't interrupt
+* Look at the speaker, even if it means stopping work
+* Keep emotions in check
+* When it's time to ask questions, get clarification, etc. I do so in a respectful manner
