@@ -1677,3 +1677,54 @@ Let's say you recently completed the CliftonStrengths Online Assessment and foun
 Now let's move on to observe self and others. When you're looking at yourself, what are you really good at? What opportunities does your organization offer for new skill development? Let's just say a deadline has moved up. How did you respond? When you look at others, what skills do others demonstrate that you would like to master? Let's just say you volunteered to orient another team member. What happened to your supervisors mood as a result? Let's take a look at organization. Company directors often send out progress updates, newsletters, and notifications of opportunities opening up. Do you take time to read these communications? Apply The TRIAD to your thinking. During times of change in stress, how can you change or improve your physiology to take on this new challenge? What are you focused on? What do you need to focus on? How can you reframe your focus to a positive? What do you need to communicate with yourself and others? What positive language can you use? Plan flexible courses of action. In a vocal world that's volatile, uncertain, complex, and ambiguous, you can ground yourself by planning. Instead of seeing only one solution to a problem or only one outcome of an initiative, take the time to conceptualize several possibilities.
 
 When planning, set small goals that build a pattern of success. When you face a task that will likely take a lot of effort over an extended period of time, you can increase your resilience by breaking down what seems like a mountain of work into smaller, manageable steps. Remember the ripple effect. The greater our positive control of ourselves, the greater our potential to positively influence others.
+
+### Action Planning
+
+#### What is an Action Plan?
+
+A checklist for steps or tasks you need to complete to achieve the goal you've set.
+
+* well-defined description of the goal to be achieved
+* tasks or steps
+* timeline
+* resources
+* measurements to evaluate progress (to celebrate small wins)
+
+#### Why do we need an Action Plan?
+
+* to reinforce what you learned
+* prepare for obstacles
+* keep adaptability and resilience top of mind
+* boost confidence
+* stay focused
+
+#### What are the benefits of an Action Plan?
+
+* gives clear direction
+* reason to stay motivied and committed to learning
+* track your progress towards your goals
+* share and celebrate wins regularly
+
+#### How do you write an Action Plan?
+
+Define your end-goal:
+  * How do you want to be seen in the world
+
+##### SMART Goals
+
+* **S**pecific
+* **M**easureable
+* **A**ttainable
+* **R**elevant
+* **T**ime bound
+
+Add visuals and sounds to make your plan more memorable and motivating.  Visuals and sounds stir emotions, and emotions are the energy of life.
+
+#### Share your Action Plan
+
+* sharing buids accountability and intrinsic motivation
+* ask for feedback
+* monitor, evaluate, and update your plan frequently
+  * make it a working document that you focus on daily
+* celebrate your progress
+* have fun!
