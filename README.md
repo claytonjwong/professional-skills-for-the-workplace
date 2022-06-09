@@ -1863,3 +1863,7 @@ When those challenges get more difficult and we experience those moments of pani
 #### Summary
 
 Remember, this program will only take you so far. The road to wisdom is through application. So you will also need to continue the work. You'll need to put your learning into action and use your action plan. You'll need to genuinely reflect, try new things and challenge yourself. You'll need to remember that real improvement is about practice, continuous review and development. As Dieter Uchtdorf said, it's your reaction to adversity, not adversity itself that determines how your life story will develop.
+
+#### Oh Crap! Speed Drill
+
+![](oh_crap.png)
