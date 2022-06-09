@@ -1773,3 +1773,93 @@ Habits of effective networkers advocate for themselves. They raise their visibil
 * Look at the speaker, even if it means stopping work
 * Keep emotions in check
 * When it's time to ask questions, get clarification, etc. I do so in a respectful manner
+
+### Action Steps
+
+* List your inner circle of people you ask for support
+* List ways you can show appreciation or give back
+* List 3 people you'd like to get to know better
+* List some steps you can take to develop a relationship with each person
+* Get involved in a new club or organization
+* Predict the changes that will occur
+* Describe the person you'll be becoming
+
+### Positivity and Optimism
+
+Positivity and optimism are powerful attitudes. Well they originate in the individual, they can lift everyone that person touches. They are human entitlements.
+
+#### Positivity
+
+You can spot a positive optimistic person by their responses to everyday situations.
+
+* Habitually see the bright side
+* Regularly experience emotions
+  * joy, hope, gratitude, serenity, exploration, and discovery
+* Gratefully accept the world as it is
+* Choose positivity
+
+Essentially, positivity is a matter of choosing, even in the most challenging situations, to create light instead of darkness. Optimism is a product of positivity.
+
+#### Optimism
+
+A mental attitude that reflects a belief or hope that the outcome will be positive, favorable, and desirable.
+
+#### Our Choice
+
+Between a stimulus and response, there is a space. In that space is our power to choose our response. In our response, lies our growth and our freedom.
+
+> The one thing you can't take away form me is the way I choose to respond.... The last of one's freedoms is to choose one's attitude in any given circumstance.
+>
+-[Viktor Frankl](https://en.wikipedia.org/wiki/Viktor_Frankl)
+
+#### Memories are either Positive or Negative
+
+According to Nobel Prize-winning scientist Daniel Kahneman, we experience approximately 20,000 individual moments in a waking day. Each "moment" lasts a few seconds. If you consider any strong memory -- positive or negative -- you'll notice that the imagery in your mind is actually defined by your recollection of a precise point in time. And rarely does a neutral encounter stay in your mind -- the memorable moments are almost always positive or negative.
+
+![](memorable_moments.png)
+
+#### Positivity Benefits
+
+* Positive people live longer
+* Positive work environments outperform
+* Positive leaders make better decisions under pressure
+* Marriages succeed with a 5:1 positive to negative interactino ratio
+* More resilient when facing stress, challenges, and adversity
+* Maintain a broader perspective and see the bigger picture
+  * Negative people have a narrower perspective and tend to focus on problems
+* Able to identify solutions
+* Have more friends (key to happiness and longevity)
+
+#### Negativity Detriments
+
+* There is a cost to negativity. 90% of doctor visits are stress related according to the Centers for Disease Control and Prevention
+* Negative employees can scare off every customer they speak with for good
+* Decreases the productivity of the team
+* One negative person can create a miserable office environment for everyone else
+* Negative emotions increase the risk of heart attack and stroke
+* Negativity is associated with greater stress, less energy, and more pain
+* Have fewer friends
+
+#### How Much Positivity is Enough?
+
+* 5:1 is the ideal ratio for positive to negative interactions
+* 13:1 is the upper limit (we need to face problems in a real way)
+
+#### Building Adaptability and Resilience
+
+* Work through challenges
+* Have the confidence that you can thrive under most circumstance
+* See things for how they are and choose to move through them with a positive outlook and attitude
+
+#### Challenges
+
+When those challenges get more difficult and we experience those moments of panic, where we become emotionally hijacked. And our best adaptability resilience seems to be out of reach. Here's a simple exercise developed by Mark Gholston in his book. Just listen.
+
+#### Resources
+
+* [Maintaining a Positive, Optimistic Attitude](positive_attitude.pdf)
+* [How do you build new connections at work?](how_to_build_connections.pdf)
+
+#### Summary
+
+Remember, this program will only take you so far. The road to wisdom is through application. So you will also need to continue the work. You'll need to put your learning into action and use your action plan. You'll need to genuinely reflect, try new things and challenge yourself. You'll need to remember that real improvement is about practice, continuous review and development. As Dieter Uchtdorf said, it's your reaction to adversity, not adversity itself that determines how your life story will develop.
